@@ -820,6 +820,107 @@ E ele estava disposto a fazer o que fosse necessário para conseguir.
 
 ---
 
+### Capítulo 9
+Edwin não lembrava ao certo quando havia decidido voltar para a cidade da catedral naquela noite. Sabia apenas que, quando deu por si, já estava diante da fachada da Taverna do Viajante Cansado, o letreiro balançando ao vento, a música escapando pelas frestas como um convite.
+Ele já não era mais o mesmo rapaz de antes. Havia cruzado invernos demais desde a primeira vez que a vira ali — as responsabilidades, a doença do pai, o anúncio da campanha pelo trono. Já passara da idade em que alguém podia chamá‑lo de garoto. E, ainda assim, ao abrir a porta da taverna, sentiu-se exatamente assim: um garoto à beira de algo que não sabia nomear.
+Kim estava onde ele sabia que estaria.
+Sentada na borda do pequeno palco, alaúde encostado ao lado, conversava com dois mercadores enquanto terminava uma melodia suave. O cabelo escuro, com as mechas verdes, caía em ondas sobre os ombros; as botas gastas estavam apoiadas em um barril vazio, e a luz das tochas fazia as runas em seus braços brilharem como brasas sob a pele.
+Quando o viu, o sorriso nasceu primeiro nos olhos — depois nos lábios.
+— Achei que o "apenas Edwin" tinha se perdido pelo caminho — disse ela, inclinando a cabeça. — Ou que tinha desistido de procurar o que queria.
+Ele se aproximou, o coração batendo mais rápido do que em qualquer campo de treino.
+— Talvez eu tenha demorado… porque precisei descobrir se valia a pena — respondeu, a voz rouca pelo dia inteiro passado em silêncio no castelo.
+Kim dispensou os mercadores com um gesto, pegou o alaúde e o pousou com cuidado em cima do palco. Desceu em um salto leve, parando perto o bastante para que Edwin sentisse o cheiro de madeira, vinho e algo cítrico que vinha da pele dela.
+— E decidiu? — ela perguntou. — Vale a pena?
+Os olhos verdes o seguraram no lugar. Ele pensou no pai no trono, na tosse, nas palavras sobre a campanha. Pensou em William, no olhar de desafio. Pensou na carta de Frederik, no velho da fogueira, no cálice escondido em uma cidade caída.
+E, acima de tudo, pensou nela.
+— Decidi que… se eu for mudar meu destino… — ele engoliu em seco — eu quero que você faça parte disso.
+Por um instante, o barulho da taverna pareceu se afastar. Kim o estudou em silêncio, como fizera na primeira noite em que se conheceram, como se pudesse ler mais nas entrelinhas do que nas palavras.
+Então, estendeu a mão.
+— Então vamos começar com uma escolha simples, príncipe sem coroa — disse, num tom leve, mas firme. — Vem comigo.
+Ele hesitou apenas o suficiente para perceber que estava hesitando. E então tomou a mão dela.
+A pele de Kim era quente, calejada nos pontos em que os dedos tocavam cordas há anos. Ela o puxou por entre as mesas, passando pelos clientes distraídos, pelas risadas, pelas canecas tilintando. Ninguém ali se importava que ele fosse um Wyrmgarde; ali, ele era apenas um homem seguindo uma mulher que sabia exatamente para onde estava indo.
+Subiram a escada estreita nos fundos da taverna, as tábuas rangendo sob o peso dos dois. Cada degrau parecia uma distância maior do castelo, das leis, dos olhos dourados dos deuses. No último patamar, Kim parou diante de uma porta simples, de madeira escurecida pelo tempo.
+— Ainda dá tempo de voltar — murmurou, sem olhá-lo. — Você pode descer, beber mais um copo, fingir que nada disso existe. Amanhã, acordar como o segundo filho obediente e seguir pro seu destino.
+Edwin olhou para a mão dela ainda na sua, para a forma como o polegar dela traçava, distraído, um círculo na sua pele.
+— E se eu entrar? — perguntou.
+Ela virou o rosto então, e havia algo de sério, quase solene, na expressão.
+— Se você entrar, Edwin… — respondeu — vai ser você escolhendo, não o reino. Nem seu pai. Nem seus deuses. Só você. E isso… você não vai poder desfazer.
+Ele pensou no preço que o velho da fogueira mencionara ao falar do cálice. No preço de qualquer escolha verdadeira. E decidiu que, pelo menos naquela noite, queria pagar com algo que fosse dele.
+— Eu já estou dentro há muito tempo, Kim — disse, por fim. — Só faltava perceber.
+Ela sorriu — um sorriso lento, satisfeito — e empurrou a porta.
+O quarto era pequeno, mas quente. Uma cama estreita, coberta por cobertores grossos; uma mesa baixa com duas canecas e uma garrafa de vidro âmbar pela metade; uma janela inclinada, por onde entrava a luz pálida da lua e o som distante da cidade. Era um lugar sem brasões, sem retratos de ancestrais, sem olhos de pedra julgando cada movimento.
+Kim fechou a porta com um clique suave. Encostou-se nela por um instante, observando-o como se quisesse gravar aquele momento.
+— Tira esse manto — disse, num sussurro que não era um pedido.
+Ele obedeceu, dedos um pouco trêmulos enquanto desfazia o fecho da capa. Deixou-a cair sobre uma cadeira. Sentiu-se… leve. Vulnerável. Como se, ao abandonar aquele pedaço de tecido, abandonasse também um pouco do peso do sobrenome que carregava.
+Kim caminhou até ele devagar, as botas fazendo pouco ruído no chão de madeira. Quando parou à sua frente, ergueu a mão e tocou o lugar em seu peito onde o coração batia acelerado, por cima da camisa.
+— Você entra em batalhas, não entra? — perguntou, os olhos verdes fixos nos dele.
+— Já entrei em algumas — respondeu, confuso com a pergunta.
+— Lá fora, você aprende a ferir e a se defender — continuou ela, a voz baixa. — Aqui dentro… — apertou levemente o tecido sob os dedos — você vai aprender outra coisa. A se entregar sem armadura.
+Edwin riu, nervoso.
+— E se eu não souber?
+Kim deu de ombros, um brilho divertido nos olhos.
+— Aí é por isso que eu estou aqui. — Aproximou-se mais um pouco. — Deixa que eu te mostro.
+Ela o beijou sem aviso, mas não com a pressa de uma paixão descontrolada. Foi um toque firme, decidido, como quem abre uma porta que já sabia estar destrancada. Os lábios dela tinham o gosto de vinho e de algo doce que ele não conseguiu identificar. O mundo encolheu ao ponto daquele contato.
+Por um instante, Edwin pensou em todos os sermões que ouvira sobre carne e pecado. Todos pareciam distantes, como vozes em outro idioma. Ali, só existia a mão de Kim subindo pela sua nuca, puxando-o um pouco mais para perto, e o corpo dela se encaixando ao seu como se aquele movimento já tivesse sido ensaiado mil vezes em sonhos que ele não lembrava.
+Quando ela se afastou, o fez devagar, os lábios ainda roçando nos dele.
+— De novo — sussurrou ele, antes de conseguir se conter.
+— Melhor — corrigiu Kim, sorrindo. — Fecha os olhos. Esquece quem você é lá fora.
+Ele obedeceu.
+Kim o beijou outra vez, mais profunda agora, guiando o ritmo, abrindo espaço com paciência, como quem ensina uma nova melodia a alguém que sempre ouviu música, mas nunca tocou. A mão dela desceu de sua nuca para o peito, sentindo o coração disparado, depois para a cintura, puxando-o ainda mais para si.
+Quando os lábios se separaram, Edwin percebeu que tinha ficado sem ar.
+— Você pensa demais — ela murmurou, roçando o nariz no dele. — Aqui não precisa pensar. Só sentir.
+Os dedos dela começaram a desfazer os botões de sua camisa, um a um, sem pressa. Cada toque era um aviso: estou aqui, estou vendo você, não como príncipe, não como segundo filho — como homem. A cada botão que se abria, o ar frio do quarto encontrava a pele quente de Edwin, e o arrepio que isso causava se misturava ao calor crescente de estar tão próximo dela.
+Quando a camisa finalmente caiu, Kim passou a ponta dos dedos pelo peito dele, numa linha que ia da clavícula até o estômago. Não havia julgamento no olhar — apenas curiosidade, apreciação.
+— Você carrega o mundo aqui — comentou, pressionando a mão aberta contra o centro do peito dele. — Pai doente, irmão, trono, cálice, leis, deuses… — cada palavra vinha acompanhada de um leve empurrão, até que ele desse um passo para trás e sentisse a borda da cama bater atrás dos joelhos. — Agora, por uma noite, larga tudo.
+Ele sentou, quase sem perceber. Kim ficou de pé entre seus joelhos, alta demais, perigosa demais, linda demais. Edwin ergueu as mãos, hesitante, parando a poucos dedos da cintura dela.
+— Posso? — perguntou, a voz baixa.
+Ela sorriu, inclinando a cabeça.
+— Você pode tudo que eu deixar — respondeu. — E eu vou deixar muita coisa, Edwin. Mas quero que peça. Que escolha. Sempre.
+Ele assentiu, sentindo um respeito estranho crescer ali, misturado ao desejo. Não era só sobre tocar; era sobre ser permitido tocar. Sobre ser convidado.
+Suas mãos pousaram na cintura dela, sentindo o couro macio da calça, a firmeza dos músculos sob o tecido. Kim guiou as mãos dele para cima, até a barra da túnica de tecido grosso.
+— Puxa — ela murmurou.
+Ele fez o que ela pediu, devagar, erguendo a túnica até que ela a passasse pela cabeça e a deixasse cair no chão. A luz fraca da lua desenhou sombras suaves nas curvas do corpo dela, mais marcado por viagens do que por luxos. As runas nos braços continuavam visíveis, como se tivessem sido tatuadas com fogo.
+Edwin a olhou como se estivesse vendo algo sagrado e proibido ao mesmo tempo.
+— Você é… — começou, sem encontrar palavras.
+— Livre — completou Kim por ele, ajoelhando-se entre suas pernas, ficando à altura de seus olhos. — E é isso que eu quero te dar hoje. Um gosto do que é viver sem pedir bênção a ninguém.
+Ela o beijou de novo, mais faminta agora, e a hesitação inicial de Edwin começou a derreter. As mãos dele ganharam coragem, explorando as costas dela, sentindo a pele aquecida sob os dedos, deslizando pela linha da coluna até a base das costas. Kim suspirou contra a boca dele, aprovando, e aquele som foi como faísca em palha seca — incendiou algo que ele vinha mantendo preso há muito tempo.
+As roupas foram desaparecendo aos poucos, num jogo de paciência em que cada peça arrancada revelava mais pele, mais calor, mais vulnerabilidade. Kim ria baixinho quando ele se atrapalhava em algum fecho, guiando as mãos dele com calma, como quem ensina passos de dança.
+Quando, enfim, não havia mais tecido separando pele de pele, ela o empurrou com delicadeza para trás, fazendo-o deitar na cama estreita. Subiu sobre ele com a mesma naturalidade com que subia em um palco, joelhos firmes de cada lado de seu corpo, cabelos caindo como uma cortina escura ao redor dos dois.
+— Olha pra mim — pediu, prendendo o rosto dele entre as mãos. — Não foge aqui pra dentro — bateu de leve com a ponta do dedo na testa dele. — Fica comigo.
+Ele obedeceu. E, pela primeira vez em muito tempo, ficou completamente presente.
+Quando Kim o recebeu em si, foi um movimento lento, consciente. Nada ali foi arrebatamento cego; era escolha. A respiração dela ficou mais pesada, os olhos fecharam por um segundo, mas ela os abriu de novo, fazendo questão de manter o olhar preso ao dele. Queria que ele visse. Queria que ele entendesse que aquele momento era tão dele quanto dela.
+Edwin sentiu o corpo inteiro responder, uma onda de prazer intenso percorrendo-o, misturado a um espanto quase infantil. Não havia sermão que o tivesse preparado para a sensação de ser acolhido daquele jeito, de sentir que cada parte de si — carne, medo, raiva, desejo — cabia ali.
+Kim começou a se mover, primeiro num ritmo suave, quase um embalo, como se ainda o estivesse convencendo a soltar o último fio de controle. As mãos dele subiram para os quadris dela, instintivas, acompanhando o movimento. Ela deixou, incentivando com um gemido baixo que fez o sangue de Edwin ferver.
+— Isso — murmurou, inclinando-se para beijá-lo de novo. — Aqui… você não precisa ser forte pra ninguém. Não precisa provar nada. Só… me acompanha.
+Ele tentou dizer algo, mas as palavras se desfizeram em um suspiro arrastado quando ela acelerou o ritmo, o corpo dela se esfregando no seu numa cadência que parecia ao mesmo tempo desconhecida e perfeitamente natural. A cama rangeu, protestando discretamente, mas ambos ignoraram.
+Os movimentos foram se tornando mais urgentes, mais descompassados, e Edwin sentiu uma pressão crescente se acumular em seu centro, um limite se aproximando rápido demais. O medo antigo de falhar, de ser menos, ameaçou reaparecer — mas Kim percebeu antes que ele tivesse tempo de se envergonhar.
+Parou por um momento, apoiando a testa na dele, ofegante, o peito subindo e descendo num ritmo acelerado.
+— Respira comigo — ela pediu, encaixando o corpo de forma que ele pudesse sentir o calor dela pulsando, mas sem se mover. — Não precisa segurar nada. Nem provar nada. Se vier rápido, vem. Se demorar, demora. Nada disso muda o que está acontecendo aqui.
+Edwin respirou fundo, o cheiro de pele e sexo e madeira antiga preenchendo seus pulmões. Pela primeira vez em muito tempo, ele deixou ir o impulso de tentar controlar tudo. Deixou que o corpo falasse mais alto que o orgulho.
+Quando Kim recomeçou a se mover, o fez de um jeito diferente — mais lento por alguns instantes, depois mais fundo, procurando junto com ele um novo ritmo. Os sons que escapavam dos dois agora enchiam o quarto: suspiros, gemidos contidos, o roçar de pele contra pele. Não havia pressa, mas havia urgência — não de terminar, e sim de se perder completamente um no outro por alguns instantes.
+A onda veio, inevitável, arrastando tudo. Edwin se agarrou aos quadris dela, olhos arregalados, o corpo inteiro tensionado; Kim o acompanhou, mudando levemente o ângulo, buscando o próprio clímax com a mesma determinação com que encararia um palco lotado.
+Quando o prazer o atravessou, foi quase um choque elétrico, roubando-lhe o ar e qualquer pensamento articulado. Ele gemeu o nome dela, sem títulos, sem máscaras, e sentiu o mundo encolher ao tamanho daquele quarto.
+Kim o seguiu logo depois, o corpo tremendo levemente sobre o dele, os dedos se cravando em seus ombros enquanto um gemido mais alto, quase um riso, escapava de sua garganta. Por um momento, tudo foi luz branca atrás das pálpebras fechadas.
+Depois, só havia silêncio.
+Ela desabou sobre o peito dele, ofegante, o suor colando a pele dos dois. O coração de Edwin ainda martelava forte, mas agora não era só pela intensidade do ato. Era pela consciência cristalina de que algo tinha mudado — dentro dele, entre eles, diante do mundo.
+Kim ficou ali por um tempo, apenas ouvindo os batimentos sob a orelha. Quando falou, a voz vinha baixa, mas sem nenhuma dúvida.
+— É isso que eles tentam tirar de você — murmurou. — A sensação de que o seu corpo é seu. Que suas escolhas são suas. Que você pode dar e receber prazer sem pedir licença a um trono ou a um altar.
+Edwin passou a mão pelas costas dela, traçando círculos preguiçosos.
+— Se é isso que tentam tirar… — ele disse, ainda rouco — então agora eu sei exatamente pelo que estou lutando.
+Kim ergueu o rosto, os olhos verdes brilhando na penumbra.
+— Você vai mesmo desafiar seu irmão — não era uma pergunta.
+— Vou — respondeu, sem hesitar. — Pelo trono. Pelo que eu acho que posso fazer com ele. — Fez uma pausa, estudando o rosto dela. — E por isso aqui também.
+Ela sorriu, um sorriso que misturava ternura e ironia.
+— Não comete o erro de colocar uma mulher como prêmio, Edwin — advertiu, tocando de leve o queixo dele. — Eu não sou o troféu de ninguém. Mas…
+Beijou-o de leve, quase um selinho, antes de completar:
+— Se você realmente mudar esse mundo engessado em que nasceu… talvez eu escolha ficar pra ver. E, até lá, eu te lembro, quantas vezes for preciso, como é a sensação de ser livre de verdade.
+Ele assentiu, sentindo aquelas palavras se gravarem mais fundo que qualquer sermão já ouvira.
+Ficaram assim, enroscados na cama estreita, ouvindo a música distante da taverna, o murmúrio da cidade lá fora, a respiração um do outro. Pela primeira vez desde que soubera da doença do pai, desde que ouvira sobre o cálice, desde que lera a carta de Frederik, Edwin adormeceu sem sonhar com correntes.
+Quando acordasse, saberia que tinha algo a perder.
+E era exatamente isso que tornava a escolha de desafiar tudo… finalmente real.
+
+---
+
 ## Rascunhos e Notas
 
 ### Uma conversa com a aventureira
