@@ -822,7 +822,7 @@ E ele estava disposto a fazer o que fosse necessário para conseguir.
 
 ### Capítulo 9
 Edwin não lembrava ao certo quando havia decidido voltar para a cidade da catedral naquela noite. Sabia apenas que, quando deu por si, já estava diante da fachada da Taverna do Viajante Cansado, o letreiro balançando ao vento, a música escapando pelas frestas como um convite.
-Ele já não era mais o mesmo rapaz de antes. Havia cruzado invernos demais desde a primeira vez que a vira ali — as responsabilidades, a doença do pai, o anúncio da campanha pelo trono. Já passara da idade em que alguém podia chamá‑lo de garoto. E, ainda assim, ao abrir a porta da taverna, sentiu-se exatamente assim: um garoto à beira de algo que não sabia nomear.
+Aquela semana havia sido a mais longa de sua vida. Desde a primeira vez que a vira ali — tão poucos dias atrás — tudo parecia ter se deslocado um pouco para fora do lugar: as responsabilidades, a doença do pai, o anúncio da campanha pelo trono. Não fazia tanto tempo assim, mas a sensação era de que havia cruzado uma fronteira invisível. Já passara da idade em que alguém podia chamá‑lo de garoto. E, ainda assim, ao abrir a porta da taverna, sentiu-se exatamente assim: um garoto à beira de algo que não sabia nomear.
 Kim estava onde ele sabia que estaria.
 Sentada na borda do pequeno palco, alaúde encostado ao lado, conversava com dois mercadores enquanto terminava uma melodia suave. O cabelo escuro, com as mechas verdes, caía em ondas sobre os ombros; as botas gastas estavam apoiadas em um barril vazio, e a luz das tochas fazia as runas em seus braços brilharem como brasas sob a pele.
 Quando o viu, o sorriso nasceu primeiro nos olhos — depois nos lábios.
@@ -861,7 +861,8 @@ Edwin riu, nervoso.
 Kim deu de ombros, um brilho divertido nos olhos.
 — Aí é por isso que eu estou aqui. — Aproximou-se mais um pouco. — Deixa que eu te mostro.
 Ela o beijou sem aviso, mas não com a pressa de uma paixão descontrolada. Foi um toque firme, decidido, como quem abre uma porta que já sabia estar destrancada. Os lábios dela tinham o gosto de vinho e de algo doce que ele não conseguiu identificar. O mundo encolheu ao ponto daquele contato.
-Por um instante, Edwin pensou em todos os sermões que ouvira sobre carne e pecado. Todos pareciam distantes, como vozes em outro idioma. Ali, só existia a mão de Kim subindo pela sua nuca, puxando-o um pouco mais para perto, e o corpo dela se encaixando ao seu como se aquele movimento já tivesse sido ensaiado mil vezes em sonhos que ele não lembrava.
+Beijo não era algo que fazia parte das noites que ele comprava. Beijo era íntimo demais, próximo demais; os corpos que alugara até então aceitavam sua boca no pescoço, no peito, em qualquer lugar que rendesse mais moedas — mas nunca nos lábios. Aquilo sempre fora regra silenciosa: prazer sim, ternura não.
+Por um instante, Edwin pensou em todos os sermões que ouvira sobre carne e pecado, e em como nenhum deles falava sobre o que significava ser beijado assim, sem contrato, sem preço combinado. Todos pareciam distantes, como vozes em outro idioma. Ali, só existia a mão de Kim subindo pela sua nuca, puxando-o um pouco mais para perto, e o corpo dela se encaixando ao seu como se aquele movimento já tivesse sido ensaiado mil vezes em sonhos que ele não lembrava.
 Quando ela se afastou, o fez devagar, os lábios ainda roçando nos dele.
 — De novo — sussurrou ele, antes de conseguir se conter.
 — Melhor — corrigiu Kim, sorrindo. — Fecha os olhos. Esquece quem você é lá fora.
@@ -870,7 +871,7 @@ Kim o beijou outra vez, mais profunda agora, guiando o ritmo, abrindo espaço co
 Quando os lábios se separaram, Edwin percebeu que tinha ficado sem ar.
 — Você pensa demais — ela murmurou, roçando o nariz no dele. — Aqui não precisa pensar. Só sentir.
 Os dedos dela começaram a desfazer os botões de sua camisa, um a um, sem pressa. Cada toque era um aviso: estou aqui, estou vendo você, não como príncipe, não como segundo filho — como homem. A cada botão que se abria, o ar frio do quarto encontrava a pele quente de Edwin, e o arrepio que isso causava se misturava ao calor crescente de estar tão próximo dela.
-Quando a camisa finalmente caiu, Kim passou a ponta dos dedos pelo peito dele, numa linha que ia da clavícula até o estômago. Não havia julgamento no olhar — apenas curiosidade, apreciação.
+Quando a camisa finalmente caiu, Kim passou a ponta dos dedos pelo peito dele, numa linha que ia da clavícula até o estômago. Edwin tinha estado em outros quartos antes, com outras mulheres, mas ali tudo sempre começara e terminara com a moeda sobre a mesa: carne, suor, descarga e silêncio, quase nunca bocas se encontrando de verdade. Beijos, quando aconteciam, eram rápidos, mecânicos, parte do serviço — nunca um convite, nunca um começo. Não havia intimidade, não havia espaço para o que vinha depois. Fazer o que tinha que fazer e ir embora — era só isso. Com Kim, a ausência de moedas, a demora entre um beijo e outro e a falta de qualquer pressa o deixavam mais nu do que a própria pele. Não havia julgamento no olhar — apenas curiosidade, apreciação.
 — Você carrega o mundo aqui — comentou, pressionando a mão aberta contra o centro do peito dele. — Pai doente, irmão, trono, cálice, leis, deuses… — cada palavra vinha acompanhada de um leve empurrão, até que ele desse um passo para trás e sentisse a borda da cama bater atrás dos joelhos. — Agora, por uma noite, larga tudo.
 Ele sentou, quase sem perceber. Kim ficou de pé entre seus joelhos, alta demais, perigosa demais, linda demais. Edwin ergueu as mãos, hesitante, parando a poucos dedos da cintura dela.
 — Posso? — perguntou, a voz baixa.
@@ -880,7 +881,7 @@ Ele assentiu, sentindo um respeito estranho crescer ali, misturado ao desejo. N�
 Suas mãos pousaram na cintura dela, sentindo o couro macio da calça, a firmeza dos músculos sob o tecido. Kim guiou as mãos dele para cima, até a barra da túnica de tecido grosso.
 — Puxa — ela murmurou.
 Ele fez o que ela pediu, devagar, erguendo a túnica até que ela a passasse pela cabeça e a deixasse cair no chão. A luz fraca da lua desenhou sombras suaves nas curvas do corpo dela, mais marcado por viagens do que por luxos. As runas nos braços continuavam visíveis, como se tivessem sido tatuadas com fogo.
-Edwin a olhou como se estivesse vendo algo sagrado e proibido ao mesmo tempo.
+Edwin a olhou como quem reconhece um território que já percorreu com pressa, mas nunca à luz do dia. O corpo feminino não era mistério para ele; o que o desarmava ali era a sensação de estar sendo, pela primeira vez, realmente visto de volta.
 — Você é… — começou, sem encontrar palavras.
 — Livre — completou Kim por ele, ajoelhando-se entre suas pernas, ficando à altura de seus olhos. — E é isso que eu quero te dar hoje. Um gosto do que é viver sem pedir bênção a ninguém.
 Ela o beijou de novo, mais faminta agora, e a hesitação inicial de Edwin começou a derreter. As mãos dele ganharam coragem, explorando as costas dela, sentindo a pele aquecida sob os dedos, deslizando pela linha da coluna até a base das costas. Kim suspirou contra a boca dele, aprovando, e aquele som foi como faísca em palha seca — incendiou algo que ele vinha mantendo preso há muito tempo.
@@ -889,7 +890,7 @@ Quando, enfim, não havia mais tecido separando pele de pele, ela o empurrou com
 — Olha pra mim — pediu, prendendo o rosto dele entre as mãos. — Não foge aqui pra dentro — bateu de leve com a ponta do dedo na testa dele. — Fica comigo.
 Ele obedeceu. E, pela primeira vez em muito tempo, ficou completamente presente.
 Quando Kim o recebeu em si, foi um movimento lento, consciente. Nada ali foi arrebatamento cego; era escolha. A respiração dela ficou mais pesada, os olhos fecharam por um segundo, mas ela os abriu de novo, fazendo questão de manter o olhar preso ao dele. Queria que ele visse. Queria que ele entendesse que aquele momento era tão dele quanto dela.
-Edwin sentiu o corpo inteiro responder, uma onda de prazer intenso percorrendo-o, misturado a um espanto quase infantil. Não havia sermão que o tivesse preparado para a sensação de ser acolhido daquele jeito, de sentir que cada parte de si — carne, medo, raiva, desejo — cabia ali.
+Edwin sentiu o corpo inteiro responder, uma onda de prazer intenso percorrendo-o, misturado a um espanto antigo, mas diferente. Não era a novidade do ato em si — ele já conhecia o caminho da carne, já tinha buscado alívio em corpos anônimos mais vezes do que gostava de admitir. O que o pegava de surpresa era o jeito como Kim o recebia: sem pressa, sem distância contratada, como se cada parte de si — carne, medo, raiva, desejo — tivesse ali um lugar, e não apenas uma função.
 Kim começou a se mover, primeiro num ritmo suave, quase um embalo, como se ainda o estivesse convencendo a soltar o último fio de controle. As mãos dele subiram para os quadris dela, instintivas, acompanhando o movimento. Ela deixou, incentivando com um gemido baixo que fez o sangue de Edwin ferver.
 — Isso — murmurou, inclinando-se para beijá-lo de novo. — Aqui… você não precisa ser forte pra ninguém. Não precisa provar nada. Só… me acompanha.
 Ele tentou dizer algo, mas as palavras se desfizeram em um suspiro arrastado quando ela acelerou o ritmo, o corpo dela se esfregando no seu numa cadência que parecia ao mesmo tempo desconhecida e perfeitamente natural. A cama rangeu, protestando discretamente, mas ambos ignoraram.
@@ -918,6 +919,220 @@ Ele assentiu, sentindo aquelas palavras se gravarem mais fundo que qualquer serm
 Ficaram assim, enroscados na cama estreita, ouvindo a música distante da taverna, o murmúrio da cidade lá fora, a respiração um do outro. Pela primeira vez desde que soubera da doença do pai, desde que ouvira sobre o cálice, desde que lera a carta de Frederik, Edwin adormeceu sem sonhar com correntes.
 Quando acordasse, saberia que tinha algo a perder.
 E era exatamente isso que tornava a escolha de desafiar tudo… finalmente real.
+
+---
+
+### Capítulo 10
+
+Edwin acordou com a luz pálida atravessando a janela inclinada e batendo direto em seu rosto.
+
+Por um segundo, não soube onde estava. A cama era estreita demais para ser a do castelo, grossa demais para ser a de um bordel qualquer. O lençol tinha cheiro de madeira, vinho derramado e algo cítrico familiar. Virou o rosto para o lado por instinto.
+
+O lugar ao seu lado estava vazio.
+
+A ausência dela não era dramática — não havia bilhetes, nem lenço abandonado, nada poeticamente deixado para trás. Só um travesseiro com a marca desfeita de um corpo e uma mecha de cabelo escuro perdida junto à borda da cama, que logo o vento tratou de espalhar.
+
+Edwin inspirou fundo, sentindo o corpo inteiro reclamar levemente, não por excesso de bebida, mas por uma noite em que, pela primeira vez em muito tempo, não tinha se deixado entorpecer para esquecer onde estava. Levantou-se devagar, pegou a calça no chão, a camisa pendurada em meia dobra na cadeira, e vestiu tudo em silêncio.
+
+A gargalhada distante de alguém no salão lá embaixo o lembrou de que a vida continuava, independente da noite que ele tivera. Ajustou o cinto, passou a mão pelos cabelos sem muita paciência e saiu do quarto.
+
+Desceu as escadas estreitas da taverna com a sensação estranha de quem sonhou algo grande demais para caber na memória. A cada degrau, tentava fechar de novo as peças no lugar: rei doente, campanha em uma semana, cálice em uma cidade caída, um beijo que não tinha sido comprado.
+
+No salão, Kim estava exatamente onde alguém que não estava apaixonada estaria.
+
+Sentada sobre o balcão, de lado, uma perna balançando no ar, o alaúde apoiado nas costas, negociava com o dono da taverna o pagamento da última semana. Ria de algo que ele havia dito, os olhos verdes brilhando com uma vivacidade que não tinha nada de melancólica ou suspirante. Ao redor, alguns viajantes tomavam café fraco e pão duro, outros contavam moedas com cara de ressaca.
+
+Ela percebeu a presença dele antes de olhar. Talvez pelo silêncio que se fez em seus passos, ou pelo peso do olhar que ele não conseguiu disfarçar.
+
+— Bom dia, apenas Edwin — disse, sem se mover, como se fosse só mais um cliente descendo para comer.
+
+Só então virou o rosto na direção dele, um sorriso preguiçoso no canto da boca.
+
+— Dormiu bem? — completou, como quem pergunta sobre o clima.
+
+Edwin demorou um meio segundo a mais do que gostaria para responder.
+
+— Melhor do que mereço — soltou, optando pelo tom leve que usava quando não queria mostrar nada. — Achei que tinha fugido pela janela.
+
+Kim riu, um som curto.
+
+— E deixar meu pagamento pra trás? Nunca. — Bateu de leve com o indicador numa pequena bolsa de moedas ao lado do cotovelo. — E além do mais, você ronca mais baixo do que eu esperava. Não foi tão difícil ficar.
+
+O comentário o pegou de surpresa e arrancou dele um sorriso de verdade.
+
+— Fico feliz em não ter espantado a plateia — respondeu.
+
+Ela deu de ombros, descendo do balcão com um pequeno salto. Aproximou-se, a poucos passos de distância, sem invadir o espaço, mas também sem tratá-lo como algo frágil.
+
+— Vai voltar pro castelo hoje? — perguntou, como se estivesse perguntando qual estrada ele pretendia pegar.
+
+— Vou — confirmou, prendendo o olhar nos olhos dela por um momento mais longo do que o necessário. — Tenho uma semana pra preparar uma campanha que pode me matar ou me coroar. E, aparentemente, mais de metade do reino vai querer apostar contra mim.
+
+— Metade do reino sempre aposta contra quem muda as regras — disse Kim, como se estivesse comentando sobre o preço do vinho. — A outra metade finge que não tá assistindo, mas tá.
+
+Ela inclinou a cabeça, avaliando-o com atenção. Havia algo diferente na forma como ele mantinha os ombros, menos soltos do que na primeira noite em que se conheceram, mas também menos caídos do que na taverna do castelo.
+
+— E você? — ela perguntou. — Vai apostar em quem?
+
+Ele soltou um suspiro curto pelo nariz.
+
+— Em mim, pela primeira vez. — Deu um meio sorriso torto. — E, se eu perder, pelo menos vou ter dado um susto bonito no meu irmão.
+
+Kim riu de novo, genuína.
+
+— Isso já vale o ingresso — comentou.
+
+Por um instante, o silêncio entre os dois pareceu carregar mais coisa do que as palavras que haviam trocado. Edwin sentiu o impulso estúpido de dizer algo que soasse maior do que aquela manhã — prometer que voltaria, que traria uma coroa, que a tiraria das estradas, qualquer bobagem infantil que soasse como final de balada de taverna.
+
+Mordeu a língua antes que qualquer coisa assim escapasse.
+
+Kim, por sua vez, não parecia à beira de nenhuma declaração. Estava serena, firme no próprio eixo, como sempre esteve desde o primeiro encontro. Quando deu um passo à frente, não foi para jogar promessas ao vento, mas para ajustar a gola da camisa dele, que tinha ficado torta.
+
+— Só um conselho, príncipe sem coroa — disse, a voz baixa o bastante para que só ele ouvisse. — Não sobe naquele castelo achando que o que a gente teve aqui é escudo. O mundo deles não liga se você beijou alguém que não foi paga pra isso.
+
+Os dedos dela alisaram um amassado no tecido, depois recuaram.
+
+— Mas — continuou — se em algum momento, lá em cima, você esquecer que tem um corpo que é seu e um coração que é seu… lembra dessa noite. Não pra me transformar em motivo. Pra lembrar que você pode escolher.
+
+Edwin inclinou a cabeça, absorvendo as palavras. Não havia doçura melodramática ali, nem pedido para ser lembrada como amor de vida. Havia um lembrete seco de liberdade.
+
+— Eu não vou colocar você numa canção de bardo sobre o grande amor que me fez desafiar o mundo — disse, com um toque de ironia cansada. — Mas talvez coloque numa história sobre o dia em que eu finalmente decidi parar de viver só o que esperavam de mim.
+
+— Aí já é problema seu — respondeu Kim, dando de ombros. — Eu só toco se pagarem bem.
+
+Ela piscou, desviando o olhar para o balcão.
+
+— Agora, vai. — Apontou com o queixo para a porta. — Quanto mais você enrolar, mais tempo o seu irmão tem pra se acostumar com a ideia de que já ganhou.
+
+Edwin assentiu. Não houve beijo de despedida. Não houve abraço demorado, nem promessa de voltar. Ele apenas tocou de leve com os dedos a borda do alaúde encostado no balcão, como quem marca um talismã invisível, e seguiu em direção à saída.
+
+Do lado de fora, o ar da manhã estava frio, mas limpo. O céu ainda carregava resquícios da noite, e as ruas começavam a encher de carrinhos, vendedores e fiéis indo e vindo em direção à catedral. Edwin montou no cavalo que havia alugado no dia anterior, ajeitou a capa e tomou o caminho de volta para o castelo.
+
+O trote ritmado do animal o ajudou a organizar os pensamentos. A cada batida de casco, um ponto se alinhava: o rei morrendo aos poucos, William se vendo como herdeiro inevitável, os lordes farejando a sucessão, o velho da fogueira falando sobre o cálice, Frederik enterrado vivo entre pedras e votos, Kim dizendo que beijo não se compra.
+
+Não era por uma mulher, ele sabia. Não só.
+
+Era pelo direito de não ser empurrado para um altar que nunca quis, pelo direito de escolher que tipo de monstro pretendia ser, se era inevitável ser um. Era pela chance de olhar para aquele trono de pedra e dizer que tinha se dado a si mesmo, e não que tinha caído em seu colo por falta de opção.
+
+Mas, quando pensava em tudo isso, o gosto que lhe vinha à boca não era o do sangue do cálice da lenda.
+
+Era o de um beijo que não tinha preço.
+
+Ele deixou o pensamento morrer ali, antes que se tornasse confissão. As torres do castelo começaram a surgir no horizonte, escuras contra o céu pálido. A cada passo, a silhueta se tornava mais nítida — muralhas, bandeiras com o dragão dourado, as mesmas pedras que o viram crescer e o ignoraram por anos.
+
+Quando atravessou os portões, os guardas se apressaram em abrir caminho, mais por instinto do que por respeito. O rumor sobre o anúncio do rei já havia se espalhado; olhares curiosos o acompanhavam, como se tentassem adivinhar que papel o segundo filho teria naquele novo jogo.
+
+Edwin não foi para os aposentos. Não procurou a mãe, nem Christian. Puxou o capuz para trás, endireitou os ombros e seguiu direto para o salão menor onde sabia que William estaria reunido com conselheiros e lordes mais próximos.
+
+Do lado de dentro, encontrou exatamente o que esperava.
+
+William em pé ao lado de uma mesa larga, mapas espalhados, taças de vinho quase intactas, meia dúzia de nobres inclinados sobre os papéis como aves de rapina sobre um corpo ainda quente. Falavam em voz baixa sobre rotas de suprimento, lealdade de casas menores, possíveis alianças com o clero. Quando a porta se abriu, algumas cabeças se viraram com impaciência, esperando um criado.
+
+Silêncio quando viram que era Edwin.
+
+William demorou um segundo para erguer o olhar. Quando o fez, seus olhos azuis passaram por cima do irmão como se ele fosse um incômodo menor, algo que pudesse ser resolvido com uma palavra dura e um gesto de mão.
+
+— Se veio pedir um lugar confortável no clero depois que tudo isso passar — começou, sem disfarçar o desdém — podemos discutir depois. Agora, estamos falando de assunto sério.
+
+Edwin sorriu, mas o sorriso não chegou aos olhos.
+
+— Hoje em dia, qualquer conversa que me exclui é chamada de assunto sério, pelo visto — respondeu, caminhando até o centro da sala, entre a mesa e a lareira. — Mas, por sorte, o que eu vim fazer aqui não precisa de muito tempo.
+
+Alguns dos lordes se entreolharam, tensos. Outros apenas se afastaram um pouco, como se pressentissem espetáculo.
+
+William cruzou os braços.
+
+— E o que o segundo filho do rei tem de tão urgente a dizer que não pode ser tratado como gente grande e participar da reunião desde o início? — perguntou, a voz carregada de ironia.
+
+Edwin o encarou por um momento em silêncio, estudando-lhe a postura. Viu ali o mesmo homem que crescera para ser rei desde o berço — treinado, admirado, preparado. Viu também o medo escondido, o mesmo que tinha vislumbrado no salão do trono quando o pai mencionara a antiga tradição da campanha.
+
+— Eu vim fazer o que você não esperava que eu tivesse coragem de fazer — disse, finalmente. — E já que todos aqui parecem gostar tanto de tradições antigas quando elas lhes convêm… vamos honrar uma delas direito.
+
+Virou-se para a porta.
+
+— Chamem o rei — pediu a um dos guardas, sem elevar a voz. — Ou o Primaz, se meu pai não tiver forças para vir até aqui. — Pausou. — Quero testemunhas.
+
+O murmúrio cresceu. William ficou rígido.
+
+— Edwin, pare com esse teatro — rosnou. — Você não…
+
+— Eu não o quê? — cortou Edwin, voltando a encará-lo. — Não tenho direito? Não tenho coragem? Não tenho o mínimo de respeito pelas regras que vocês mesmos tanto veneram?
+
+Os passos no corredor anunciaram a aproximação de mais gente. Em poucos instantes, o rei entrou, apoiado no braço de um curandeiro, o Primaz logo atrás, envolto nas vestes claras manchadas de vermelho. Lady Eleanor também estava ali, o rosto fechado, os olhos atentos. Christian se manteve à sombra, próximo à parede, como quem sabia que algo grande prestes a desabar não era o tipo de coisa que se atravessa pela frente.
+
+O rei se sentou em uma cadeira trazida às pressas. Respirou fundo, a respiração curta, mas o olhar ainda firme.
+
+— O que significa isso, Edwin? — perguntou, sem rodeios.
+
+O segundo filho deu um passo à frente. Sentia os olhares pesarem sobre si — alguns curiosos, outros irritados, alguns poucos talvez esperançosos. Estranhamente, não sentia vontade de fazer piada, nem de beber. Sentia-se sóbrio demais.
+
+— Significa que eu aceito a tradição que o senhor mesmo invocou — disse, a voz clara. — A campanha. A prova. O direito de disputar o trono.
+
+William bufou.
+
+— Ninguém aqui disse que você não participaria — rebateu. — Só imaginamos que, conhecendo o histórico do meu irmão, ele preferiria uma cadeira confortável na catedral e umas moedas para as noites livres.
+
+Algumas risadas nervosas ecoaram pela sala.
+
+Edwin não desviou o olhar.
+
+— O histórico do seu irmão é exatamente o que me qualifica para isso — retrucou. — Eu conheço as tavernas, as mesas de jogo, as camas baratas e as promessas vazias que sustentam metade deste reino. Eu sei quanto sangue é trocado por pão, quanto corpo é vendido por moedas que nunca chegam até aqui em cima. Enquanto você aprendia a discursar diante de bandeiras, eu aprendi a ouvir sussurros nas mesas dos fundos.
+
+Deu de ombros.
+
+— Se este trono governa tanto a corte quanto as sarjetas… alguém precisa saber falar as duas línguas.
+
+O silêncio que se seguiu não foi de aprovação, mas também não foi de desprezo absoluto. Havia um desconforto ali — como se algumas daquelas verdades não fossem novas, apenas inconvenientes de serem ditas em voz alta.
+
+O Primaz inclinou levemente a cabeça, observando com interesse controlado.
+
+— E é só isso? — perguntou William. — Você, jogador, devasso, preguiçoso, quer ser rei porque… conhece bem as tavernas?
+
+Edwin respirou fundo, sentindo por um instante o gosto de vinho e algo doce na memória, antes de deixá-lo ir.
+
+— Não — respondeu. — Eu quero ser rei porque estou cansado de viver a vida que decidiram por mim antes mesmo de eu nascer. Porque se o mundo vai ser partido ao meio por essa disputa, prefiro estar com a mão no cabo da lâmina do que com o pescoço no caminho. — A voz não tremeu. — E porque, pela primeira vez, eu tenho algo que o reino pode tentar arrancar de mim. E eu não vou deixar.
+
+Lady Eleanor o encarou com atenção redobrada. O rei estreitou os olhos, cansados, mas lúcidos.
+
+— Você entende o peso do que está pedindo? — perguntou o velho monarca. — Não é um capricho, Edwin. Não é uma aposta de taverna.
+
+— Eu entendo que vou sair daqui com gente torcendo para que eu morra no caminho — respondeu. — Mas também entendo que, se eu não fizer nada, vão me enterrar vivo num hábito que nunca escolhi. Se é para ter correntes, que pelo menos sejam correntes que eu mesmo decidi vestir.
+
+O silêncio se estendeu. O Primaz deu um passo adiante.
+
+— A tradição é clara — disse, medindo as palavras. — Em tempos de sucessão incerta, os filhos do rei podem pleitear o direito de provar seu valor em campanha. Não apenas o primogênito.
+
+Os olhos dourados pousaram em William, depois em Edwin.
+
+— Se ambos aceitarem as regras, o Cálice da Coroa — símbolo, não o outro cálice, o verdadeiro, porém esquecido nas lendas — pesará o mérito de cada um. O conselho, o clero e o próprio povo serão forçados a ver quem retorna mais digno.
+
+William apertou os punhos.
+
+— Eu não tenho medo de prova nenhuma — disse, os dentes cerrados. — Se é isso que é exigido para que não paire dúvida sobre meu direito, que seja. Eu aceito a campanha. — Olhou diretamente para o irmão. — E aceito disputar com você… e ver você cair.
+
+Edwin sentiu o coração acelerar, mas manteve a expressão controlada.
+
+— Eu também aceito — afirmou. — Não para roubar o que é seu, William, mas para tomar o que nunca quiseram me dar.
+
+O rei fechou os olhos por um instante, como se estivesse conversando com deuses que talvez já não escutassem mais tão bem quanto antes. Quando os abriu, havia uma resolução triste ali.
+
+— Então está decidido — declarou. — Meus filhos disputarão a campanha. Que os deuses, se ainda se importam, vejam quem retorna mais digno… ou menos indigno.
+
+Um murmúrio percorreu a sala como vento atravessando um campo de espigas. Alguns lordes já começavam a calcular vantagens, alianças, apostas. O jogo havia mudado de forma definitiva.
+
+Edwin sentiu os olhos de Christian sobre si e, por um breve instante, encontrou neles algo que parecia tanto preocupação quanto orgulho relutante. Lady Eleanor, por outro lado, não sorriu nem franziu o cenho — apenas o mediu como se estivesse vendo, pela primeira vez, o contorno real do filho que sempre escorregara por entre as expectativas da corte.
+
+O Primaz ergueu a mão, abençoando com palavras vazias de consolo, mas cheias de peso político.
+
+— Que Aelyrion ilumine o caminho de ambos — disse, solenemente.
+
+Edwin pensou no velho da fogueira, no deus cigano que lembrava Aelyrion, mas ria na cara das certezas da coroa. Pensou na cidade caída, no cálice proibido, na rota que começava a se desenhar à sua frente, cheia de monstros humanos e divinos.
+
+E, por um instante rápido demais para ser visto, pensou no gosto de um beijo que não tinha sido pago.
+
+Não sorriu. Não fez piada. Apenas inclinou a cabeça, aceitando a bênção com o mesmo respeito calculado com que aceitava uma nova carta numa mesa de apostas.
+
+O jogo, finalmente, havia começado.
 
 ---
 
