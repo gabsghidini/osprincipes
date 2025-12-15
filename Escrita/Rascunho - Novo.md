@@ -1028,7 +1028,7 @@ Do lado de dentro, encontrou exatamente o que esperava.
 
 William em pé ao lado de uma mesa larga, mapas espalhados, taças de vinho quase intactas, meia dúzia de nobres inclinados sobre os papéis como aves de rapina sobre um corpo ainda quente. Falavam em voz baixa sobre rotas de suprimento, lealdade de casas menores, possíveis alianças com o clero. Quando a porta se abriu, algumas cabeças se viraram com impaciência, esperando um criado.
 
-Silêncio quando viram que era Edwin.
+O silêncio não se demorou a fazer quando viram que era Edwin.
 
 William demorou um segundo para erguer o olhar. Quando o fez, seus olhos azuis passaram por cima do irmão como se ele fosse um incômodo menor, algo que pudesse ser resolvido com uma palavra dura e um gesto de mão.
 
