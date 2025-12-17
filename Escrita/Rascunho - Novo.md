@@ -2510,20 +2510,436 @@ E quando juntaram as duas metades, finalmente viram o caminho completo. O caminh
 
 E sabiam que, a partir daquele momento, não havia mais volta.
 
-### Capítulo 24
+### Capítulo 24 - ler a partir daqui 
 *Chegada ao local da última fase do torneio, onde o artefato está escondido.*
 
-### Capítulo 24
-*A party enfrenta uma provação sobrenatural no caminho até o artefato (proteger uma aldeia de uma criatura invocada pelos rivais / enfrentar os mortos de uma antiga batalha).*
+O mapa completo nas mãos de Edwin era mais do que apenas linhas e símbolos — era um caminho para o fim de tudo. Ou para o começo. Dependia de como se olhava.
+
+As ruínas de Drakestone apareceram no horizonte no décimo quinto dia de viagem desde que deixaram Valerius. A paisagem ao redor havia mudado gradualmente — as montanhas deram lugar a vales estreitos, e então a vales que pareciam ter sido queimados há muito tempo. A vegetação era escassa, retorcida, como se tivesse sido envenenada. E o ar carregava um cheiro estranho — enxofre, mas também algo mais, algo que fazia a garganta coçar e os olhos lacrimejarem.
+
+— É ali — Edwin disse, apontando para o que parecia ser uma cidade em ruínas ao longe. — Drakestone.
+
+O grupo parou, observando. As ruínas eram enormes — muito maiores do que qualquer cidade que qualquer um deles já havia visto. Muralhas quebradas se erguiam contra o céu, torres desmoronadas apontavam para o nada, e ao redor, havia uma sensação de… vazio. Como se a própria vida tivesse sido sugada daquele lugar.
+
+— Não parece um lugar muito acolhedor — Brenna comentou, a voz mais baixa do que o normal.
+
+— Não é para ser — Nymeris respondeu, os olhos prateados fixos nas ruínas. — Este é um lugar de morte. De corrupção. — Fez uma pausa. — Posso sentir. A magia aqui está… errada. Como se tivesse sido distorcida, pervertida.
+
+Christian estudou o rosto dela, preocupado.
+
+— Você está bem?
+
+— Não — Nymeris respondeu, honestamente. — Mas não temos escolha. Precisamos continuar.
+
+Ziralyth observou as ruínas com olhos calculistas, como se estivesse avaliando os riscos.
+
+— O mapa mostra que o cálice está no centro — disse, apontando para o pergaminho. — Mas também mostra que há… algo. Algo que protege o caminho.
+
+— O que? — Edwin perguntou.
+
+— Não sei — Ziralyth respondeu. — Mas os símbolos aqui — apontou para uma parte do mapa — indicam armadilhas. E aqui — apontou para outra parte — indicam… algo mais. Algo que não consigo identificar.
+
+Edwin estudou o mapa por um momento, tentando entender. Havia símbolos antigos, runas que ele não reconhecia, e linhas que pareciam representar rotas, mas também pareciam representar algo mais — algo que não era físico.
+
+— Vamos com cuidado — disse, finalmente. — E ficamos juntos. Não vamos nos separar.
+
+O grupo assentiu, e começaram a se aproximar das ruínas. A cada passo, a sensação de opressão aumentava. O ar ficava mais pesado, mais difícil de respirar. E havia sons — sussurros distantes, como se vozes antigas ainda ecoassem pelas pedras.
+
+Quando finalmente chegaram às muralhas, viram que estavam quebradas em vários lugares, mas ainda altas o suficiente para serem impressionantes. As pedras eram negras, como se tivessem sido queimadas, e havia símbolos esculpidos nelas — símbolos que nenhum deles reconhecia, mas que faziam com que sentissem um desconforto profundo.
+
+— Esses símbolos… — Nymeris sussurrou, tocando um deles com a ponta dos dedos. — Eles são antigos. Muito antigos. Antes dos deuses primordiais. Antes de tudo que conhecemos.
+
+— O que eles dizem? — Christian perguntou.
+
+— Não sei — Nymeris respondeu. — Mas sinto que… sinto que não deveriam estar aqui. Que não deveriam existir.
+
+Edwin não disse nada, mas sentiu algo estranho no peito. Havia algo ali — algo que o atraía e ao mesmo tempo o repelia. Como se o cálice estivesse chamando, mas também avisando que não deveria ser tocado.
+
+Mas ele não podia parar. Não agora. Não depois de ter chegado tão longe.
+
+— Vamos — disse, finalmente. — O cálice está lá dentro. E vamos encontrá-lo.
+
+O grupo passou pelas muralhas quebradas, entrando na cidade em ruínas. As ruas eram largas, mas cobertas de escombros. Casas desmoronadas se alinhavam de ambos os lados, e no centro, havia uma praça enorme — uma praça que parecia ter sido o coração da cidade.
+
+E no centro da praça, havia uma estrutura.
+
+Era um templo. Ou o que restava de um. As colunas ainda estavam de pé, mas o teto havia desmoronado. E no centro, havia um altar — um altar de pedra negra, cravejado com símbolos que pareciam pulsar com uma luz própria.
+
+Mas o altar estava vazio.
+
+Não havia cálice. Não havia artefato. Apenas o altar, e a sensação de que algo deveria estar ali, mas não estava.
+
+— Onde está? — Edwin perguntou, a voz carregando frustração. — Onde está o cálice?
+
+— Talvez não esteja aqui — Ziralyth sugeriu, os olhos passando pelo mapa novamente. — Talvez o mapa mostre o caminho, mas não o destino final.
+
+— Ou talvez — Nymeris disse, os olhos prateados fixos em algo ao longe — precisemos passar por algo primeiro. Uma prova. Uma provação.
+
+Edwin seguiu o olhar dela e viu — ao redor das ruínas, havia algo se movendo. Algo que não era natural. Algo que parecia estar se aproximando.
+
+E então ouviu. Gritos. Gritos de pessoas. Gritos de desespero.
+
+— Há uma vila — Christian disse, apontando para além das ruínas. — E há algo atacando ela.
+
+O grupo correu em direção aos gritos, e quando chegaram perto o suficiente para ver, a cena que se desenrolou diante deles era de pesadelo.
+
+Era uma vila pequena, não mais que algumas casas agrupadas. E ela estava sendo atacada. Mas não por bandidos ou mercenários. Por algo muito pior.
+
+Eram criaturas. Criaturas que pareciam ter sido feitas de sombra e desespero. Formas humanoides, mas distorcidas, como se tivessem sido arrancadas do próprio pesadelo. E elas estavam atacando a vila, matando, destruindo, sem piedade.
+
+— O que são essas coisas? — Brenna perguntou, o machado já nas mãos.
+
+— Não sei — Nymeris respondeu, os olhos prateados brilhando com uma luz estranha. — Mas posso sentir. Elas não são naturais. Foram invocadas. Criadas. — Fez uma pausa. — E há algo familiar nelas. Algo que reconheço.
+
+— O quê? — Christian perguntou.
+
+— A magia — Nymeris respondeu. — A magia que as criou… é a mesma que está nas ruínas. É a mesma que corrompeu Drakestone.
+
+Edwin sentiu o estômago se contrair. Se as criaturas haviam sido invocadas, e se a magia era a mesma das ruínas, então alguém estava usando o poder do cálice. Ou tentando usar.
+
+E se alguém estava tentando usar, então talvez o cálice não estivesse mais nas ruínas. Talvez já tivesse sido encontrado. Ou talvez estivesse sendo protegido por essas criaturas.
+
+— Precisamos ajudar — Christian disse, a espada já desembainhada. — Precisamos proteger essas pessoas.
+
+— E depois — Edwin completou, a voz determinada — precisamos descobrir quem invocou essas criaturas. E por quê.
+
+O grupo avançou, correndo em direção à vila, prontos para lutar. Mas sabiam que, o que quer que estivesse esperando por eles ali, não seria fácil.
+
+E sabiam que, para chegar ao cálice, precisariam passar por aquela provação primeiro.
+
+Era o preço. O preço de buscar algo que não deveria ser encontrado.
+
+Mas também sabiam que não podiam parar. Não agora. Não depois de ter chegado tão longe.
+
+E então, com o sol se pondo atrás das ruínas de Drakestone, o grupo entrou em combate contra criaturas que não deveriam existir, sabendo que aquela era apenas a primeira de muitas provações que os aguardavam.
+
+E que, para chegar ao cálice, precisariam passar por todas elas.
+
+Mesmo que isso significasse perder algo no caminho.
 
 ### Capítulo 25
-*Christian questiona diretamente Edwin sobre suas intenções pela primeira vez. Edwin desconversa.*
+*A party enfrenta uma provação sobrenatural no caminho até o artefato (proteger uma aldeia de uma criatura invocada pelos rivais / enfrentar os mortos de uma antiga batalha).*
+
+A batalha começou antes que qualquer um pudesse se preparar completamente. As criaturas de sombra avançaram, movendo-se de forma estranha, como se não obedecessem às leis da física. Algumas voavam, outras se arrastavam, e todas pareciam ter apenas um objetivo: destruir.
+
+Brenna foi a primeira a entrar em combate, o machado girando em um arco devastador. Mas quando a lâmina cortou através de uma das criaturas, algo estranho aconteceu — a criatura se desfez em névoa, mas então se reformou, como se o golpe não tivesse feito nada.
+
+— Elas não podem ser feridas fisicamente! — ela gritou, recuando.
+
+— Precisamos de magia — Nymeris respondeu, o cajado brilhando com uma luz prateada. — Precisamos de luz. De purificação.
+
+Ela começou a sussurrar palavras antigas, e uma luz prateada envolveu o grupo, criando uma barreira que as criaturas não conseguiam atravessar completamente. Mas mesmo assim, elas tentavam, arranhando, mordendo, tentando quebrar a proteção.
+
+Christian avançou, a espada brilhando com uma luz dourada — a luz de sua fé, de sua devoção. E quando a lâmina tocou uma das criaturas, desta vez funcionou. A criatura gritou, um som que não era humano, e então se desfez em fumaça negra.
+
+— A luz funciona! — ele gritou. — Precisamos de luz sagrada!
+
+Mas havia muitas criaturas. Demais. E mesmo com a luz de Christian e a magia de Nymeris, elas continuavam chegando, continuavam atacando.
+
+Foi então que Edwin viu algo. Algo que fez seu estômago se contrair.
+
+No meio da batalha, havia uma figura. Uma figura que não era uma criatura, mas que parecia estar controlando-as. Um homem vestido com roupas escuras, um cajado nas mãos, e olhos que brilhavam com uma luz vermelha.
+
+E Edwin reconheceu aqueles olhos. Reconheceu aquele poder.
+
+Era alguém que estava usando magia negra. Magia de Maldrakar. E estava invocando essas criaturas, controlando-as, usando-as para atacar a vila.
+
+— Lá! — ele gritou, apontando. — Há alguém controlando-as!
+
+Ziralyth seguiu o olhar dele e viu. E então, sem hesitar, avançou, as adagas nas mãos, movendo-se como uma sombra através da batalha.
+
+Mas antes que pudesse chegar ao invocador, algo mais aconteceu.
+
+O chão começou a tremer. E então, de repente, formas começaram a emergir do solo — formas que pareciam humanas, mas que não eram. Eram esqueletos. Esqueletos vestidos com armaduras antigas, empunhando espadas enferrujadas, com olhos que brilhavam com uma luz verde.
+
+— Os mortos — Nymeris sussurrou, a voz trêmula. — Os mortos de uma antiga batalha. Eles estão se levantando.
+
+Edwin sentiu o estômago se contrair. Não eram apenas criaturas invocadas. Eram também os mortos. Os mortos de Drakestone, os mortos das guerras antigas, todos se levantando, todos respondendo ao chamado do poder corrupto que emanava das ruínas.
+
+— Isso é demais — Christian disse, bloqueando um golpe de um esqueleto. — Não podemos lutar contra tudo isso!
+
+— Não temos escolha — Edwin respondeu, a espada cortando através de um esqueleto. — Se não lutarmos, essas pessoas vão morrer. E nós também.
+
+A batalha se intensificou. As criaturas de sombra atacavam de todos os lados, os esqueletos avançavam em formação, e o invocador, no centro de tudo, ria, como se estivesse se divertindo.
+
+Mas então algo mudou.
+
+Nymeris parou de se defender e começou a sussurrar algo diferente. Algo mais poderoso. E então, de repente, uma luz branca explodiu ao redor dela, expandindo-se como uma onda, tocando cada criatura, cada esqueleto, cada forma de morte.
+
+E quando a luz os tocou, algo aconteceu.
+
+As criaturas de sombra gritaram, desfazendo-se em fumaça. Os esqueletos pararam, os olhos verdes se apagando, e então caíram, voltando a ser apenas ossos. E o invocador, que havia estado rindo, gritou, cobrindo os olhos, como se a luz o estivesse queimando.
+
+— O que você fez? — Christian perguntou, surpreso.
+
+— Purificação — Nymeris respondeu, caindo de joelhos, exausta. — Purificação total. Mas custou caro.
+
+Edwin correu até ela, ajudando-a a se levantar, mas ela estava fraca, muito fraca. A magia que havia usado havia drenado quase toda sua energia.
+
+Mas funcionou. As criaturas estavam mortas. Os esqueletos estavam de volta ao solo. E o invocador estava fugindo, correndo em direção às ruínas.
+
+— Não podemos deixá-lo escapar — Ziralyth disse, já correndo atrás dele.
+
+O grupo seguiu, mas quando chegaram perto das ruínas, o invocador havia desaparecido. Mas havia algo ali. Algo que não estava antes.
+
+Uma porta. Uma porta que não existia antes, esculpida na própria pedra das ruínas, com símbolos antigos que pareciam pulsar com uma luz própria.
+
+— É aqui — Edwin disse, a voz baixa. — O caminho para o cálice. Estava escondido. E só aparece depois que passamos pela provação.
+
+O grupo parou, observando a porta. Sabiam que, ao passar por ela, não haveria mais volta. Sabiam que, ao passar por ela, estariam entrando no lugar onde o cálice estava guardado.
+
+E sabiam que, para chegar até ele, precisariam enfrentar mais provações. Mais testes. Mais coisas que não deveriam existir.
+
+Mas também sabiam que não podiam parar. Não agora. Não depois de ter chegado tão longe.
+
+— Vamos — Edwin disse, finalmente, colocando a mão na porta. — Vamos encontrar o cálice. E vamos terminar isso.
+
+A porta se abriu, revelando um corredor escuro que descia para as profundezas. E o grupo entrou, sabendo que, a partir daquele momento, não havia mais volta.
+
+E que, para conseguir o que queriam, precisariam pagar o preço.
+
+Qualquer que fosse.
 
 ### Capítulo 26
-*Ziralyth descobre um documento ou mapa oculto nas coisas de Edwin — percebe a real intenção, mas guarda para si.*
+*Christian questiona diretamente Edwin sobre suas intenções pela primeira vez. Edwin desconversa.*
+
+O grupo se afastou do altar, carregando o cálice com cuidado. Edwin o segurava como se fosse uma serpente — sabendo que era perigoso, mas incapaz de soltá-lo. O poder que emanava dele era quase palpável, e cada passo que dava parecia mais pesado, como se o próprio peso do destino estivesse sobre seus ombros.
+
+Os espectros dos sete lordes os seguiram, mas não atacaram. Apenas observaram, como se estivessem esperando. Como se soubessem que, mais cedo ou mais tarde, Edwin beberia. E então eles seriam libertos, e ele tomaria o lugar deles.
+
+Mas por enquanto, apenas seguiram.
+
+O grupo saiu das ruínas, caminhando em silêncio. Ninguém falou. Ninguém quis falar. Todos carregavam o peso daquele momento — o peso de saber que tinham o artefato, mas também o peso de saber o que ele significava.
+
+Foi só quando estavam longe o suficiente das ruínas, quando a sensação de opressão começou a diminuir, que Christian finalmente falou.
+
+— Edwin — disse, a voz carregando algo que Edwin não conseguiu identificar. — Preciso falar com você.
+
+Edwin parou, virando-se para olhar para o amigo. Christian estava sério, os olhos verdes fixos nele, e havia algo ali — algo que Edwin não tinha visto antes. Algo que parecia quase… decepção.
+
+— O que é? — perguntou, tentando manter a voz neutra.
+
+— O que você viu? — Christian perguntou, sem rodeios. — Quando tocou no cálice. O que os sete lordes te disseram?
+
+Edwin hesitou. Não queria mentir, mas também não queria contar a verdade completa. Não queria que Christian soubesse o que os lordes haviam oferecido. Não queria que ele soubesse que Edwin estava considerando beber.
+
+— Eles me ofereceram poder — respondeu, finalmente. — Poder suficiente para conseguir o trono. Para mudar tudo.
+
+— E o que você disse? — Christian pressionou, os olhos fixos nele.
+
+— Eu não disse nada — Edwin respondeu. — Ainda não. Preciso pensar.
+
+— Pensar sobre o quê? — Christian perguntou, a voz mais dura. — Sobre se vale a pena beber de um artefato que corrompe? Sobre se vale a pena se tornar como os sete lordes? Sobre se vale a pena perder sua alma?
+
+Edwin sentiu algo estranho no peito — uma mistura de raiva e culpa. Christian estava certo. Ele estava certo sobre tudo. Mas também não entendia. Não entendia o que era viver uma vida inteira na sombra, sabendo que nunca teria o que queria.
+
+— Você não entende — disse, finalmente. — Você não entende o que é viver sabendo que nunca vai ter o que quer. Sabendo que sempre vai ser o segundo. O esquecido. O que não importa.
+
+— Eu entendo — Christian respondeu, a voz mais suave. — Mas isso não justifica isso, Edwin. Isso não justifica se tornar algo que você não é. Isso não justifica perder quem você é.
+
+— E quem eu sou? — Edwin perguntou, a voz mais alta do que pretendia. — Quem eu sou, Christian? Sou o segundo filho que ninguém leva a sério. Sou o príncipe que vai ser empurrado para uma catedral. Sou o que não importa. — Fez uma pausa, a respiração acelerada. — E se beber do cálice me der a chance de ser alguém? De ser importante? De ter o que eu sempre quis?
+
+— A que custo? — Christian perguntou, os olhos verdes brilhando. — A que custo, Edwin? Você vai perder sua alma. Você vai se tornar como os sete lordes. Você vai se tornar algo que não é humano. E então, o que vai sobrar? O que vai sobrar de você quando você tiver o trono, mas não tiver mais quem você é?
+
+Edwin não respondeu, porque não tinha resposta. Sabia que Christian estava certo. Sabia que beber do cálice significaria perder algo. Mas também sabia que não beber significaria perder tudo.
+
+— Eu não sei — disse, finalmente. — Mas sei que não posso desistir. Não agora. Não depois de ter chegado tão longe.
+
+Christian estudou o rosto dele por um longo momento, e então algo mudou na expressão dele. Algo que parecia quase… tristeza.
+
+— Você está se perdendo — disse, a voz baixa. — E eu não sei como te ajudar. Não sei como te puxar de volta.
+
+— Talvez você não precise — Edwin respondeu, a voz mais dura do que pretendia. — Talvez eu não queira ser puxado de volta.
+
+O silêncio que se seguiu foi pesado. Christian não respondeu, apenas olhou para ele, e pela primeira vez, Edwin viu algo nos olhos do amigo que não tinha visto antes.
+
+Desespero.
+
+Christian estava desesperado. Desesperado porque sabia que estava perdendo o amigo. E desesperado porque não sabia como impedir.
+
+— Tudo bem — Christian disse, finalmente, a voz quebrada. — Mas saiba que, se você beber, se você se tornar algo que não é, eu não vou poder te seguir. Eu não vou poder te ajudar. E você vai estar sozinho.
+
+Edwin sentiu algo estranho no peito — uma mistura de raiva e tristeza. Não queria perder Christian. Não queria perder o único amigo que tinha. Mas também não queria desistir. Não queria voltar para a vida que tinha antes.
+
+— Entendi — respondeu, finalmente. — Mas também preciso que você entenda: eu não posso voltar. Não posso voltar para a vida que tinha. E se beber do cálice é a única forma de ter o que eu quero, então vou beber. Mesmo que isso signifique perder você.
+
+Christian não respondeu, apenas inclinou a cabeça e se afastou, deixando Edwin sozinho com o cálice e com seus próprios pensamentos.
+
+E Edwin sabia que, a partir daquele momento, as coisas nunca mais seriam as mesmas. Que a amizade que tinha com Christian estava se desfazendo, pedaço por pedaço. E que, se bebesse do cálice, perderia o último laço que tinha com quem era antes.
+
+Mas também sabia que não podia parar. Não agora. Não depois de ter chegado tão longe.
+
+O cálice estava em suas mãos. E o poder estava ao alcance.
+
+Agora só precisava decidir se valia a pena perder tudo para conseguir o que queria.
+
+Mas, no fundo, já sabia a resposta.
+
+E isso era o que mais o assustava.
 
 ### Capítulo 27
+*Ziralyth descobre um documento ou mapa oculto nas coisas de Edwin — percebe a real intenção, mas guarda para si.*
+
+A noite caiu sobre o acampamento como um manto pesado. O grupo havia se estabelecido a uma distância segura das ruínas de Drakestone, mas a sensação de opressão ainda persistia. A porta que haviam encontrado ainda estava lá, esperando, mas ninguém estava pronto para entrar. Não ainda.
+
+Edwin estava sentado perto da fogueira, os olhos fixos nas chamas, o rosto carregando uma expressão que ninguém conseguia ler completamente. Christian estava do outro lado, mantendo distância, e os outros estavam espalhados pelo acampamento, cada um carregando seus próprios pensamentos.
+
+Ziralyth observava tudo em silêncio, os olhos azuis passando de um para o outro, calculando, avaliando. Havia algo errado. Algo que não fazia sentido. E ela estava determinada a descobrir o que era.
+
+Quando Edwin finalmente se recolheu para dormir, deixando a mochila ao lado da fogueira, Ziralyth esperou. Esperou até que todos estivessem dormindo, até que a única luz fosse a das chamas crepitantes, e então se moveu.
+
+Silenciosamente, como uma sombra, ela se aproximou da mochila de Edwin. Não era a primeira vez que fazia isso — havia aprendido há muito tempo que, para sobreviver, precisava saber mais do que as pessoas queriam que ela soubesse. E Edwin, por mais que tentasse esconder, carregava segredos. Segredos que ela queria descobrir.
+
+A mochila estava aberta, e ela pôde ver o conteúdo — roupas, suprimentos, algumas moedas, o mapa que haviam conseguido de Gorim e Valerius. Mas havia algo mais. Algo que não deveria estar ali.
+
+Um envelope. Um envelope de pergaminho pálido, com um selo de cera vermelha que ela reconheceu — o selo da Irmandade do Sangue Dourado. Frederik.
+
+Ziralyth hesitou por um momento, mas então pegou o envelope, abrindo-o com cuidado. A carta estava dobrada, e quando a desdobrou, pôde ver a caligrafia precisa do terceiro príncipe.
+
+Lê-la foi rápido. E quando terminou, algo mudou em sua expressão. Algo que não era surpresa — ela já suspeitava — mas que era confirmação.
+
+A carta falava sobre escolhas. Sobre preços. Sobre o que acontece quando você deseja algo demais. E falava sobre algo mais — algo que Edwin não havia mencionado. Algo sobre um plano. Um plano que não era apenas sobre conseguir o trono, mas sobre mudar tudo. Sobre reescrever as leis. Sobre criar um novo reino, onde ele seria o único poder.
+
+E então ela viu algo mais. Algo que fez seu estômago se contrair.
+
+No verso da carta, havia um desenho. Um desenho que parecia ser um diagrama, com símbolos antigos e linhas que se conectavam. E no centro, havia um símbolo que ela reconheceu — o símbolo de Maldrakar, o deus da corrupção.
+
+Mas não era apenas um símbolo. Era um ritual. Um ritual que, se completado, não apenas daria poder a quem o realizasse, mas também corromperia tudo ao redor. Corromperia o reino. Corromperia as pessoas. Corromperia até mesmo os deuses.
+
+E Edwin sabia. Ele sabia o que o cálice realmente fazia. Ele sabia o preço. E ele estava disposto a pagar.
+
+Ziralyth dobrou a carta novamente, guardando-a no envelope, e então a colocou de volta na mochila, exatamente onde estava. Mas agora sabia. Sabia a verdade. Sabia que Edwin não estava apenas procurando o trono. Estava procurando algo muito maior. Algo muito mais perigoso.
+
+E sabia que, se ele conseguisse, tudo mudaria. Não apenas o reino. Tudo.
+
+Mas também sabia que não podia contar. Não ainda. Porque se contasse, o grupo se desfaria. E se o grupo se desfizesse, não haveria ninguém para impedir Edwin. Ninguém para tentar pará-lo antes que fosse tarde demais.
+
+Então guardou o segredo. Guardou como guardava tantos outros. E voltou para seu lugar no acampamento, deitando-se como se nada tivesse acontecido.
+
+Mas no fundo, sabia que tudo havia mudado. Que agora ela carregava um conhecimento que poderia destruir tudo. E que, mais cedo ou mais tarde, teria que decidir o que fazer com ele.
+
+Por enquanto, apenas observaria. Apenas esperaria. E quando chegasse o momento certo, agiria.
+
+Mas até lá, o segredo permaneceria guardado.
+
+Como sempre permaneceu.
+
+### Capítulo 28
 *A party encontra o local do artefato — protegido por enigmas ou armadilhas ancestrais.*
+
+O corredor que se abriu diante deles era estreito e escuro, descendo em uma espiral que parecia não ter fim. As paredes eram de pedra negra, lisa como vidro, e nas laterais, havia runas antigas que brilhavam com uma luz fraca, pulsando como se estivessem vivas.
+
+Edwin foi o primeiro a entrar, seguido pelos outros. A porta se fechou atrás deles com um som de pedra raspando contra pedra, e todos sabiam que não havia mais volta. Não por aquele caminho, pelo menos.
+
+— Cuidado — Nymeris sussurrou, os olhos prateados brilhando na escuridão. — Posso sentir. Há magia aqui. Magia antiga. Muito antiga.
+
+— Armadilhas? — Ziralyth perguntou, os olhos azuis passando pelas runas nas paredes.
+
+— Mais do que armadilhas — Nymeris respondeu. — Testes. Provas. Quem quer que tenha construído isso, não queria que qualquer um chegasse ao cálice. Queria que apenas aqueles que fossem dignos — ou desesperados o suficiente — conseguissem.
+
+O grupo continuou descendo, cada passo cuidadoso, cada movimento calculado. Mas nada aconteceu. Nenhuma armadilha se ativou. Nenhuma criatura apareceu. Apenas o silêncio, e o som de seus próprios passos ecoando pelas paredes.
+
+Foi só quando chegaram ao fim do corredor que viram a primeira prova.
+
+Era uma sala circular, enorme, com um teto tão alto que não conseguiam ver o topo. No centro, havia um pedestal de pedra negra, e sobre ele, um objeto que brilhava com uma luz dourada.
+
+Mas não era o cálice. Era algo diferente. Uma chave. Uma chave de ouro, cravejada com gemas que pareciam pulsar com uma luz própria.
+
+E ao redor da sala, havia três portas. Três portas idênticas, cada uma com um símbolo diferente esculpido na madeira.
+
+— O que é isso? — Brenna perguntou, o machado ainda nas mãos, como se esperasse que algo atacasse a qualquer momento.
+
+— Um enigma — Edwin respondeu, aproximando-se do pedestal. — Precisamos escolher a porta certa. Mas qual é a certa?
+
+— Talvez a chave nos diga — Christian sugeriu, mas quando tentou pegar a chave, algo aconteceu.
+
+Um campo de força apareceu ao redor do pedestal, empurrando-o para trás. E então, uma voz ecoou pela sala — uma voz antiga, profunda, que parecia vir de todos os lados ao mesmo tempo.
+
+— Três portas. Três caminhos. Três verdades. — A voz pausou. — Apenas uma leva ao que você busca. As outras levam à morte. Escolha com sabedoria, ou escolha com coragem. Mas escolha.
+
+Edwin estudou as três portas. A primeira tinha o símbolo de uma balança — justiça, equilíbrio. A segunda tinha o símbolo de uma espada — poder, força. A terceira tinha o símbolo de uma coroa — realeza, autoridade.
+
+— Qual escolhemos? — Ziralyth perguntou, os olhos passando de uma porta para a outra.
+
+— Não sei — Edwin respondeu, mas então algo chamou sua atenção. — Olhem. — Apontou para o chão, onde havia inscrições antigas. — Há algo escrito aqui.
+
+Nymeris se aproximou, ajoelhando-se para ler. Os olhos prateados brilharam quando reconheceu a escrita.
+
+— É antigo. Muito antigo. — Ela leu em voz alta: — "A justiça sem poder é inútil. O poder sem justiça é tirania. A realeza sem ambos é vazia. Mas aquele que busca o cálice não busca justiça, poder ou realeza. Busca algo mais. Algo que não pode ser dado, apenas tomado."
+
+Edwin sentiu algo estranho no peito. As palavras pareciam falar diretamente com ele. Falar sobre o que ele realmente queria. O que ele realmente buscava.
+
+— Então qual porta? — Christian perguntou, a voz carregando preocupação.
+
+— Talvez não seja sobre escolher a porta certa — Ziralyth sugeriu, os olhos fixos na chave. — Talvez seja sobre entender o que realmente queremos. O que realmente buscamos.
+
+Edwin olhou para a chave, e então para as portas. E então, de repente, entendeu.
+
+— Nenhuma das portas — disse, finalmente. — A chave não abre nenhuma delas. A chave abre algo mais. Algo que está escondido.
+
+Ele se aproximou do pedestal novamente, mas desta vez, não tentou pegar a chave. Em vez disso, estudou o pedestal. E então viu — havia uma fenda. Uma fenda pequena, quase imperceptível, na base do pedestal.
+
+E a chave se encaixava perfeitamente.
+
+Edwin pegou a chave — desta vez, o campo de força não apareceu — e a inseriu na fenda. E então, algo aconteceu.
+
+O chão começou a tremer. E então, no centro da sala, uma escada começou a descer, revelando um caminho que ia ainda mais fundo.
+
+— Era isso — Edwin disse, a voz baixa. — Não era sobre escolher a porta. Era sobre entender que o caminho não está nas portas. Está no que está escondido.
+
+O grupo desceu pela escada, e quando chegaram ao fundo, viram outra sala. Mas esta era diferente. Esta estava cheia de armadilhas.
+
+Flechas voavam das paredes. Lâminas cortavam o ar. Poços se abriam no chão. E no centro, havia outro pedestal, e sobre ele, finalmente, estava o cálice.
+
+O Cálice de Sangue Sem Fim.
+
+Negro como obsidiana, cravejado de rubis que pareciam pulsar como corações vivos. Mesmo de longe, Edwin podia sentir o poder que emanava dele — um poder antigo, corrupto, perigoso.
+
+Mas também podia sentir algo mais. Algo que o atraía, que o chamava, que prometia tudo que ele sempre quisera.
+
+— É ele — sussurrou, a voz quase inaudível.
+
+— Como chegamos até lá? — Brenna perguntou, observando as armadilhas que se moviam, se ativavam, se desativavam, em um padrão que parecia aleatório.
+
+— Precisamos encontrar o padrão — Ziralyth disse, os olhos passando pelas armadilhas. — Toda armadilha tem um padrão. Toda armadilha tem uma brecha.
+
+— Ou podemos simplesmente passar correndo — Brenna sugeriu, mas Nymeris a parou.
+
+— Não. Essas armadilhas são mágicas. Elas vão nos matar se tentarmos passar sem entender o padrão.
+
+O grupo observou por um longo momento, tentando entender. E então, Christian viu algo.
+
+— Olhem — disse, apontando. — As armadilhas se movem em sequência. Primeiro as flechas, depois as lâminas, depois os poços. E então há um momento. Um momento em que tudo para. Um momento em que podemos passar.
+
+— Quanto tempo temos? — Edwin perguntou.
+
+— Pouco — Christian respondeu. — Muito pouco. Mas é possível.
+
+O grupo se preparou, esperando pelo momento certo. E então, quando as armadilhas pararam, todos correram.
+
+Brenna foi a primeira, o machado nas mãos, cortando através de qualquer coisa que se movesse. Christian veio atrás, a espada brilhando, protegendo os outros. Ziralyth se moveu como uma sombra, evitando cada armadilha com precisão mortal. Nymeris usou sua magia para criar barreiras, protegendo o grupo. E Edwin correu direto para o cálice.
+
+Mas quando estava quase lá, algo aconteceu.
+
+Uma última armadilha se ativou. Uma armadilha que ninguém havia visto. Uma armadilha que não era física, mas mágica.
+
+E então, de repente, Edwin estava em outro lugar. Em outro tempo. Em outro mundo.
+
+E viu algo que não deveria ver.
+
+Viu o futuro. Viu o que aconteceria se ele bebesse do cálice. Viu a corrupção. Viu a destruição. Viu tudo que perderia.
+
+E então viu algo mais. Viu o que aconteceria se não bebesse. Viu a vida que teria. Viu a sombra. Viu a insignificância.
+
+E então, de repente, estava de volta. De volta à sala, de volta ao grupo, de volta ao cálice.
+
+Mas agora sabia. Sabia o preço. Sabia o custo. E sabia que, mesmo assim, não podia parar.
+
+Porque o futuro que viu, o futuro sem o cálice, era pior do que o futuro com ele.
+
+E então, estendeu a mão, e tocou no cálice.
+
+E o mundo explodiu em luz.
 
 ### Capítulo 28
 *Nymeris e Brenna têm um momento íntimo onde conversam sobre suas perdas e o que esperam após essa jornada. Os sentimentos entre elas começam a se desenvolver.*
