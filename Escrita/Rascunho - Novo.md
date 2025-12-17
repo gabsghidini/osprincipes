@@ -1969,8 +1969,112 @@ O grupo assentiu, e quando se recolheram para a noite, cada um carregava pensame
 
 E Edwin sabia que, para o que estava por vir, precisaria de toda a ajuda que pudesse conseguir.
 
-### Capítulo 18
+### Capítulo 18 - wip
 *Christian começa a desconfiar de Edwin, especialmente após uma decisão moralmente duvidosa em combate.*
+
+O caminho até as Montanhas de Kharagul levou o grupo através de terras cada vez mais desoladas. A vegetação começou a rarear, dando lugar a rochas cinzentas e vales estreitos. O ar ficou mais frio, e as noites mais longas.
+
+Foi no terceiro dia de viagem que encontraram a aldeia.
+
+Era um lugar pequeno, não mais que uma dúzia de casas de pedra agrupadas ao redor de um poço central. Mas havia algo errado. As portas estavam abertas, e não havia sinais de vida — nenhum fumo saindo das chaminés, nenhum som de animais, nenhuma pessoa nas ruas.
+
+Ziralyth foi a primeira a perceber.
+
+— Algo aconteceu aqui — disse, a voz baixa, a mão já se movendo em direção à adaga.
+
+O grupo desmontou, aproximando-se com cuidado. Quando entraram na primeira casa, encontraram o que temiam: corpos. Uma família inteira, morta. E não havia sido uma morte rápida — havia sinais de luta, de resistência, de desespero.
+
+— Bandidos — Christian disse, a voz carregando raiva. — Ou mercenários. Alguém atacou este lugar.
+
+Edwin estudou a cena, calculando. Havia algo ali que não fazia sentido. Os corpos estavam organizados de forma estranha, como se tivessem sido arrumados depois da morte. E havia símbolos desenhados nas paredes — símbolos que ele reconheceu.
+
+— Não foram bandidos — disse, finalmente. — Foram mercenários. Mercenários do meu irmão.
+
+Christian olhou para ele, os olhos verdes carregando algo que Edwin não conseguiu identificar.
+
+— Como você sabe?
+
+— Os símbolos — Edwin respondeu, apontando para as paredes. — São símbolos da casa de William. Ele está marcando território. Mostrando que está disposto a fazer o que for necessário para me impedir.
+
+Ziralyth estudou os símbolos, os olhos azuis quase transparentes fixos nas marcas.
+
+— Ele está nos seguindo — disse, finalmente. — Ou pelo menos sabe para onde estamos indo.
+
+— Provavelmente ambos — Edwin respondeu. — E está usando essas pessoas como aviso.
+
+Foi então que ouviram o som. Cascos de cavalos, se aproximando. Muitos cascos.
+
+— Eles estão voltando — Nymeris disse, a voz carregando urgência. — Precisamos sair daqui.
+
+Mas era tarde demais. Os cavaleiros já estavam entrando na aldeia, cercando o grupo. Eram pelo menos quinze homens, todos com armaduras, todos com armas. E no centro, um homem que Edwin reconheceu — o capitão da guarda pessoal de William.
+
+— Lord Edwin — o capitão disse, a voz carregando desprezo. — Seu irmão manda lembranças. E um aviso: desista agora, ou mais pessoas vão morrer.
+
+Edwin sentiu o estômago se contrair. Havia mulheres e crianças na aldeia — ou pelo menos havia. E se eles não desistissem, mais pessoas inocentes morreriam.
+
+Mas também sabia que não podia desistir. Não agora. Não depois de ter chegado tão longe.
+
+— E se eu desistir? — perguntou, mantendo a voz neutra. — O que garante que você não vai matar essas pessoas mesmo assim?
+
+O capitão riu, um som seco.
+
+— Nada — respondeu. — Mas pelo menos você terá tentado salvá-las.
+
+Foi então que Edwin viu algo. Algo que mudou tudo. Havia uma criança escondida atrás de uma das casas — uma menina pequena, não devia ter mais de oito anos. Ela estava observando, os olhos cheios de medo.
+
+E os mercenários não a tinham visto ainda.
+
+Edwin calculou rapidamente. Se atacassem, poderiam vencer. Mas não sem perdas. E não sem risco de que a criança fosse descoberta e morta.
+
+Mas havia outra opção. Uma opção que ele não queria considerar, mas que sabia que funcionaria.
+
+— Tudo bem — disse, finalmente. — Eu desisto.
+
+Christian olhou para ele, os olhos arregalados.
+
+— Edwin, você não pode…
+
+— Eu desisto — Edwin repetiu, mais alto. — Mas quero uma garantia. Quero que você deixe essas pessoas em paz. Todas elas.
+
+O capitão estudou o rosto dele por um momento, e então assentiu.
+
+— Tudo bem. Se você desistir, eu deixo essas pessoas em paz. — Fez uma pausa. — Mas você precisa vir comigo. Agora.
+
+Edwin hesitou, mas então viu a criança se mover, tentando se esconder melhor. E sabia que não tinha escolha.
+
+— Tudo bem — disse, finalmente. — Vou com você.
+
+Mas então, quando o capitão se aproximou, Edwin fez algo que ninguém esperava. Ele se moveu rápido, mais rápido do que qualquer um pensava que ele poderia se mover, e enfiou uma adaga na garganta do capitão.
+
+O homem caiu, surpreso, e o caos se seguiu.
+
+A batalha foi rápida e brutal. O grupo lutou com tudo que tinha, e quando acabou, todos os mercenários estavam mortos. Mas havia um preço.
+
+Durante a batalha, uma das casas pegou fogo. E quando o grupo conseguiu apagar as chamas, descobriram que havia mais corpos dentro — pessoas que haviam se escondido, pessoas que não conseguiram escapar a tempo.
+
+Edwin olhou para os corpos, sentindo algo estranho no peito. Não era remorso — não exatamente. Mas também não era satisfação. Era algo mais complexo, algo que ele não conseguia nomear.
+
+— Você matou o capitão — Christian disse, a voz carregando algo que Edwin não conseguiu identificar. — Você o matou mesmo depois de ter dito que desistiria.
+
+— Ele não ia cumprir a promessa — Edwin respondeu, sem olhar para o amigo. — E eu não podia deixar que ele descobrisse a criança.
+
+— A criança? — Christian perguntou, confuso.
+
+Edwin apontou para a casa onde a menina estava escondida, e Christian a viu — pequena, assustada, mas viva.
+
+— Você fez isso por ela — Christian disse, a voz mais baixa.
+
+— Fiz — Edwin confirmou. — Mas também fiz porque sabia que, se eu realmente desistisse, ele ia matar todos mesmo assim. E então teríamos perdido tudo, e essas pessoas ainda estariam mortas.
+
+Christian ficou em silêncio por um longo momento, estudando o rosto de Edwin como se estivesse vendo algo que não tinha visto antes.
+
+— Você mentiu — disse, finalmente. — Você mentiu para ele, e então o matou quando ele não esperava. — Fez uma pausa. — Isso é… isso não é o que um paladino faria. Não é o que alguém que quer fazer o bem faria.
+
+— Eu não sou um paladino — Edwin respondeu, a voz mais dura do que pretendia. — E eu não prometi fazer o bem. Prometi ganhar. E às vezes, para ganhar, você precisa fazer coisas que não são boas.
+
+Christian não respondeu, mas Edwin viu algo nos olhos dele que não estava lá antes. Desconfiança. Dúvida. E algo mais — algo que parecia quase decepção.
+
+E sabia que, a partir daquele momento, as coisas nunca mais seriam as mesmas entre eles.
 
 ### Capítulo 19
 *Ziralyth faz um comentário sarcástico que expõe as intenções ocultas de Edwin, mas ninguém dá ouvidos — exceto Christian.*
