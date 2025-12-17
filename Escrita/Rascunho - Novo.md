@@ -1676,26 +1676,110 @@ Mas algo havia mudado. Agora tinham um curandeiro. Agora tinham alguém que pode
 
 E Edwin sabia que, para o que estava por vir, isso seria fundamental.
 
+### Capítulo 15
+*Nymeris e Christian reconhecem algo um no outro — trauma religioso, passado parecido — criando uma conexão que vai ser explorada depois.*
+
+### Capítulo 16
+*Um emissário do primeiro filho tenta subornar ou sabotar Edwin. Ele recusa, mas guarda isso em segredo.*
+
+### Capítulo 17
+*A party descobre o paradeiro de um artefato menor ou mapa que revela a localização do artefato principal.*
+
+### Capítulo 18
+*Christian começa a desconfiar de Edwin, especialmente após uma decisão moralmente duvidosa em combate.*
+
+### Capítulo 19
+*Ziralyth faz um comentário sarcástico que expõe as intenções ocultas de Edwin, mas ninguém dá ouvidos — exceto Christian.*
+
+### Capítulo 20
+*Um sonho enviado por um deus dragão, alertando sobre o artefato (Nymeris vai receber essa visão).*
+
+### Capítulo 21
+*Cena onde Brenna e Nymeris salvam a party de uma emboscada. Fortalece os laços e revela o verdadeiro poder delas.*
+
+### Capítulo 22
+*Um NPC morre (talvez alguém próximo de Christian ou Ziralyth) em consequência de uma decisão impulsiva ou manipulativa de Edwin.*
+
+### Capítulo 23
+*Chegada ao local da última fase do torneio, onde o artefato está escondido.*
+
+### Capítulo 24
+*A party enfrenta uma provação sobrenatural no caminho até o artefato (proteger uma aldeia de uma criatura invocada pelos rivais / enfrentar os mortos de uma antiga batalha).*
+
+### Capítulo 25
+*Christian questiona diretamente Edwin sobre suas intenções pela primeira vez. Edwin desconversa.*
+
+### Capítulo 26
+*Ziralyth descobre um documento ou mapa oculto nas coisas de Edwin — percebe a real intenção, mas guarda para si.*
+
+### Capítulo 27
+*A party encontra o local do artefato — protegido por enigmas ou armadilhas ancestrais.*
+
+### Capítulo 28
+*Nymeris e Brenna têm um momento íntimo onde conversam sobre suas perdas e o que esperam após essa jornada. Os sentimentos entre elas começam a se desenvolver.*
+
+### Capítulo 29
+*Emboscada dos mercenários do primeiro príncipe. Grande batalha. Christian é ferido gravemente.*
+
+### Capítulo 30
+*Edwin sacrifica inocentes ou usa uma solução condenável para vencer a batalha, chocando Christian e Ziralyth.*
+
+### Capítulo 31
+*Christian sobrevive, mas começa a enxergar Edwin de forma diferente.*
+
+### Capítulo 32
+*A party recupera o artefato menor, que revela a localização final e ativa uma antiga maldição.*
+
+### Capítulo 33
+*O terceiro filho reaparece em segredo, auxiliando-os de longe, usando magia divina contra a corrupção que se aproxima.*
+
+### Capítulo 34
+*Conflito aberto entre Christian e Edwin. Edwin convence parte da party a continuar com ele.*
+
+### Capítulo 35
+*Ziralyth ameaça abandonar a missão. Nymeris intervém, lembrando do bem maior.*
+
+### Capítulo 36
+*A party segue para o confronto final, sabendo que o artefato pode destruir mais do que reinos.*
+
+### Capítulo 37
+*O artefato é recuperado — mas começa a afetar os membros do grupo (visões, pesadelos, corrupção sutil).*
+
+### Capítulo 38
+*Christian se recusa a usá-lo. Edwin revela sua verdadeira ambição na frente de todos.*
+
+### Capítulo 39
+*Ziralyth ameaça destruí-lo. Edwin a ataca verbalmente, lembrando seu passado.*
+
+### Capítulo 40
+*Confronto final entre os irmãos no castelo.*
+
+### Capítulo 41
+*Brenna e Nymeris lideram a resistência contra os guardas do primeiro príncipe.*
+
+### Capítulo 42
+*Edwin tenta usar o artefato, mas o terceiro filho interfere com a benção dos deuses.*
+
+### Capítulo 43
+*Batalha climática — Christian enfrenta Edwin.*
+
+### Capítulo 44
+*Edwin é derrotado, mas não morto.*
+
+### Capítulo 45
+*Christian é tentado a usar o artefato para curar os feridos e restaurar a paz, mas resiste.*
+
+### Capítulo 46
+*Nymeris e Brenna destroem o artefato junto com Ziralyth.*
+
+### Capítulo 47
+*O rei morre.*
+
+### Capítulo 48
+*O terceiro filho assume o trono temporariamente para restaurar a ordem.*
+
+### Capítulo 49
+*A party se separa, mas a promessa de reencontro permanece. Christian e Ziralyth deixam a capital juntos.*
+
 ---
 
-## Rascunhos e Notas
-
-### Uma conversa com a aventureira
-
-*Nota: Cena onde Edwin questiona seu destino, e ela diz algo enigmático ou provocativo sobre poder e desejo.*
-
-Edwin partiu antes do amanhecer, sem avisar a ninguém. Apenas um cavalo alugado e uma bolsa leve, suficiente para atravessar as estradas tortuosas que margeavam os vales e alcançar a costa sul antes de cair a noite. A brisa carregava o cheiro salgado do mar e a promessa de um mundo além das muralhas de pedra, das tradições sufocantes e dos olhares de pena disfarçada.
-
-Ao longe, Vallis Aerion se erguia sobre as nuvens como um santuário suspenso, suas torres de pedra branca e pontes de madeira envernizada pairando no céu, sustentadas por magia antiga e mecanismos que nenhum dos estudiosos da corte conseguira decifrar por completo. Era uma cidade sem rei, onde o ouro falava mais alto que títulos e o destino mudava ao virar de uma carta ou ao desembainhar de uma lâmina.
-
-A entrada da cidade, assim como a própria cidade, não era como nenhuma outra, para poder entrar na cidade flutuante, era necessário entrar em uma espécie de balsa que era levantada por correntes enormes, cuja grossura era comparada com a de orcs. 
-
-— Quanto para passarmos? — Perguntou Edwin aos guardas
-
----
-
-### Meeting with the Mentor
-
-*Nota: Frederik deixa uma carta secreta para Edwin antes de partir (e passa um conselho que Edwin interpreta de forma dúbia).*
-
-*[Conteúdo a ser desenvolvido]*
