@@ -196,7 +196,7 @@ O amanhecer nasceu frio naquele dia. Não havia som de pássaros, e a névoa ade
 
 Frederik vestia o manto pardo dos peregrinos, sem insígnia, sem joias. A cabeça descoberta, os cabelos revoltos molhados pelo orvalho. Não era mais um príncipe naquela estrada. Era apenas um homem a caminho de seu próprio julgamento.
 
-Edwin, no entanto, mantinha-se elegante mesmo no desconforto. Sua capa escarlate destacava-se no cinza da manhã. Sorriu ao encontrar o olhar de Frederik, como se aquilo fosse uma brincadeira, um jogo que só ele entendia as regras. O mais jovem dos Wyrmgarde sabia que não podia confiar naquele sorriso.
+Edwin, no entanto, mantinha-se elegante mesmo no desconforto. Sua capa escarlate destacava-se no cinza da manhã, e os cabelos dourados reluziam mesmo sob a névoa matinal. Os olhos azuis brilhavam com uma luz que misturava diversão e cálculo, e o rosto bem definido, com traços nobres herdados da mãe, mantinha um sorriso fácil que escondia mais do que revelava. Sorriu ao encontrar o olhar de Frederik, como se aquilo fosse uma brincadeira, um jogo que só ele entendia as regras. O mais jovem dos Wyrmgarde sabia que não podia confiar naquele sorriso.
 
 — Belo lugar para a alma morrer. — Edwin comentou, desmontando do cavalo. O tom de voz carregava ironia suficiente para envenenar a névoa.
 
@@ -466,7 +466,7 @@ A voz dela era mais grave do que Edwin esperava, com um tom ligeiramente rouco q
 
 — Não sabia que música podia contar histórias sem palavras — respondeu Edwin, surpreso com a própria honestidade.
 
-Ela finalmente ergueu os olhos, e Edwin sentiu algo estranho no peito — uma sensação que não conhecia. Os olhos verdes o estudaram por um momento, avaliando, antes de um sorriso mais amplo aparecer.
+Ela finalmente ergueu os olhos, e Edwin sentiu algo estranho no peito — uma sensação que não conhecia. Os olhos verdes o estudaram por um momento, avaliando, antes de um sorriso mais amplo aparecer. Observou os cabelos dourados que caíam de forma desalinhada sobre a testa, os olhos azuis que pareciam refletir a luz das tochas, o rosto bem definido com traços nobres que denunciavam sua origem mesmo quando tentava se esconder.
 
 — Toda música conta uma história. Só precisa saber ouvir. — Ela pousou o alaúde ao lado e se virou completamente para ele, cruzando as pernas. — Você parece alguém que tem histórias para contar.
 
@@ -1120,7 +1120,7 @@ O rei fechou os olhos por um instante, como se estivesse conversando com deuses 
 
 Um murmúrio percorreu a sala como vento atravessando um campo de espigas. Alguns lordes já começavam a calcular vantagens, alianças, apostas. O jogo havia mudado de forma definitiva.
 
-Edwin sentiu os olhos de Christian sobre si e, por um breve instante, encontrou neles algo que parecia tanto preocupação quanto orgulho relutante. Lady Eleanor, por outro lado, não sorriu nem franziu o cenho — apenas o mediu como se estivesse vendo, pela primeira vez, o contorno real do filho que sempre escorregara por entre as expectativas da corte.
+Edwin sentiu os olhos de Christian sobre si e, por um breve instante, encontrou neles algo que parecia tanto preocupação quanto orgulho relutante. Lady Eleanor, por outro lado, não sorriu nem franziu o cenho — apenas o mediu como se estivesse vendo, pela primeira vez, o contorno real do filho que sempre escorregara por entre as expectativas da corte. Observou os cabelos dourados que brilhavam sob a luz do salão, os olhos azuis que agora carregavam uma determinação que não estava lá antes, o rosto jovem mas já marcado pela ambição que começava a se revelar. Observou os cabelos dourados que brilhavam sob a luz do salão, os olhos azuis que agora carregavam uma determinação que não estava lá antes, o rosto jovem mas já marcado pela ambição que começava a se revelar.
 
 O Primaz ergueu a mão, abençoando com palavras vazias de consolo, mas cheias de peso político.
 
@@ -1268,7 +1268,7 @@ Quando ele se aproximou da mesa, ela não ergueu os olhos imediatamente. Deixou-
 
 — Desculpe — respondeu ele, puxando uma cadeira e sentando-se sem ser convidado. — Mas preciso falar com você.
 
-Ziralyth ergueu os olhos então, e Edwin viu que eram de um azul quase transparente, como gelo sob a luz do sol. Inteligentes. Perigosos.
+Ziralyth ergueu os olhos então, e Edwin viu que eram de um azul quase transparente, como gelo sob a luz do sol. Inteligentes. Perigosos. Ela estudou o príncipe por um momento — os cabelos dourados que reluziam mesmo na penumbra da taverna, os olhos azuis que tentavam parecer mais inocentes do que realmente eram, a postura elegante mesmo quando tentava se passar por um aventureiro comum. Tudo nele gritava nobreza, mesmo quando ele tentava esconder.
 
 — E quem você pensa que é pra sentar na minha mesa sem pedir? — perguntou, mas havia um brilho de curiosidade nos olhos dela.
 
@@ -1398,7 +1398,7 @@ Christian riu, aproximando-se e abraçando-a — um abraço que ela retribuiu co
 
 — Brenna, este é Edwin — disse, quando se separaram. — Edwin, esta é Brenna.
 
-Brenna olhou para Edwin, os olhos verdes brilhando com curiosidade e algo que parecia quase… empolgação.
+Brenna olhou para Edwin, os olhos verdes brilhando com curiosidade e algo que parecia quase… empolgação. Observou o príncipe — mais baixo que ela, mas com uma presença que compensava a diferença de altura. Os cabelos dourados, os olhos azuis que pareciam sempre estar calculando algo, o rosto jovem mas já marcado por uma determinação que ela reconhecia. Havia algo nele que gritava nobreza, mesmo quando tentava se passar por um aventureiro comum.
 
 — O príncipe desesperado — disse, estendendo a mão. — Christian me contou sobre você. E sobre essa campanha maluca que vocês vão fazer.
 
@@ -2703,15 +2703,11 @@ Qualquer que fosse.
 ### Capítulo 26
 *Christian questiona diretamente Edwin sobre suas intenções pela primeira vez. Edwin desconversa.*
 
-O grupo se afastou do altar, carregando o cálice com cuidado. Edwin o segurava como se fosse uma serpente — sabendo que era perigoso, mas incapaz de soltá-lo. O poder que emanava dele era quase palpável, e cada passo que dava parecia mais pesado, como se o próprio peso do destino estivesse sobre seus ombros.
+A porta se fechou atrás deles com um som final de pedra raspando contra pedra. O grupo havia entrado no corredor que descia para as profundezas, mas ainda não haviam começado a descer. Ainda estavam na entrada, observando o caminho que se abria diante deles.
 
-Os espectros dos sete lordes os seguiram, mas não atacaram. Apenas observaram, como se estivessem esperando. Como se soubessem que, mais cedo ou mais tarde, Edwin beberia. E então eles seriam libertos, e ele tomaria o lugar deles.
+A sensação de opressão era quase palpável. O ar estava pesado, difícil de respirar, e havia algo ali — algo que fazia com que todos sentissem que estavam prestes a cruzar uma linha que não poderia ser desfeita.
 
-Mas por enquanto, apenas seguiram.
-
-O grupo saiu das ruínas, caminhando em silêncio. Ninguém falou. Ninguém quis falar. Todos carregavam o peso daquele momento — o peso de saber que tinham o artefato, mas também o peso de saber o que ele significava.
-
-Foi só quando estavam longe o suficiente das ruínas, quando a sensação de opressão começou a diminuir, que Christian finalmente falou.
+Foi Christian quem quebrou o silêncio primeiro.
 
 — Edwin — disse, a voz carregando algo que Edwin não conseguiu identificar. — Preciso falar com você.
 
@@ -2719,15 +2715,19 @@ Edwin parou, virando-se para olhar para o amigo. Christian estava sério, os olh
 
 — O que é? — perguntou, tentando manter a voz neutra.
 
-— O que você viu? — Christian perguntou, sem rodeios. — Quando tocou no cálice. O que os sete lordes te disseram?
+— O que você realmente quer? — Christian perguntou, sem rodeios. — Quando começamos isso, você disse que queria o trono. Que queria o direito de se casar. Mas agora… agora não sei mais. Não sei se é só isso que você quer.
 
-Edwin hesitou. Não queria mentir, mas também não queria contar a verdade completa. Não queria que Christian soubesse o que os lordes haviam oferecido. Não queria que ele soubesse que Edwin estava considerando beber.
+Edwin hesitou. Não queria mentir, mas também não queria contar a verdade completa. Não queria que Christian soubesse o que realmente estava planejando. Não queria que ele soubesse que Edwin estava disposto a fazer qualquer coisa para conseguir o que queria.
 
-— Eles me ofereceram poder — respondeu, finalmente. — Poder suficiente para conseguir o trono. Para mudar tudo.
+— Eu quero o trono — respondeu, finalmente. — Quero o direito de escolher meu próprio destino. Quero poder me casar com quem eu quiser. Quero não ser mais o segundo filho que ninguém leva a sério.
 
-— E o que você disse? — Christian pressionou, os olhos fixos nele.
+— E o cálice? — Christian pressionou, os olhos fixos nele. — O que você vai fazer quando encontrarmos o cálice? Você vai usá-lo? Você vai beber dele?
 
-— Eu não disse nada — Edwin respondeu. — Ainda não. Preciso pensar.
+Edwin sentiu algo estranho no peito — uma mistura de raiva e culpa. Christian estava certo em desconfiar. Mas também não entendia. Não entendia o que era viver uma vida inteira na sombra, sabendo que nunca teria o que queria.
+
+— Eu não sei — respondeu, finalmente. — Ainda não encontramos o cálice. Ainda não sabemos o que ele realmente faz. Talvez… talvez não seja necessário usá-lo.
+
+— Mas você está considerando — Christian disse, não como pergunta, mas como afirmação. — Você está considerando beber dele, não está?
 
 — Pensar sobre o quê? — Christian perguntou, a voz mais dura. — Sobre se vale a pena beber de um artefato que corrompe? Sobre se vale a pena se tornar como os sete lordes? Sobre se vale a pena perder sua alma?
 
@@ -2763,13 +2763,13 @@ Edwin sentiu algo estranho no peito — uma mistura de raiva e tristeza. Não qu
 
 — Entendi — respondeu, finalmente. — Mas também preciso que você entenda: eu não posso voltar. Não posso voltar para a vida que tinha. E se beber do cálice é a única forma de ter o que eu quero, então vou beber. Mesmo que isso signifique perder você.
 
-Christian não respondeu, apenas inclinou a cabeça e se afastou, deixando Edwin sozinho com o cálice e com seus próprios pensamentos.
+Christian não respondeu, apenas inclinou a cabeça e se afastou, deixando Edwin sozinho com seus próprios pensamentos.
 
-E Edwin sabia que, a partir daquele momento, as coisas nunca mais seriam as mesmas. Que a amizade que tinha com Christian estava se desfazendo, pedaço por pedaço. E que, se bebesse do cálice, perderia o último laço que tinha com quem era antes.
+E Edwin sabia que, a partir daquele momento, as coisas nunca mais seriam as mesmas. Que a amizade que tinha com Christian estava se desfazendo, pedaço por pedaço. E que, se encontrasse o cálice e bebesse, perderia o último laço que tinha com quem era antes.
 
 Mas também sabia que não podia parar. Não agora. Não depois de ter chegado tão longe.
 
-O cálice estava em suas mãos. E o poder estava ao alcance.
+O cálice estava à frente. E o poder estava ao alcance.
 
 Agora só precisava decidir se valia a pena perder tudo para conseguir o que queria.
 
