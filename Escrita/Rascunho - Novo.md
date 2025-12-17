@@ -1134,6 +1134,402 @@ Não sorriu. Não fez piada. Apenas inclinou a cabeça, aceitando a bênção co
 
 O jogo, finalmente, havia começado.
 
+### Capítulo 11
+
+A manhã seguinte trouxe um silêncio diferente ao castelo. Não era o silêncio de respeito ou luto — era o silêncio de quem está recalculando posições, reavaliando apostas, decidindo em qual lado da moeda colocar o ouro.
+
+Edwin passou a noite acordado, não por ansiedade, mas por cálculo. Mapas mentais se desenhavam atrás dos olhos fechados: rotas possíveis, aliados potenciais, inimigos certos. O cálice da cidade caída era o objetivo final, mas para chegar lá, precisaria de mais do que ambição. Precisaria de pessoas que soubessem lutar, que soubessem sobreviver, que não se importassem em se sujar um pouco mais do que a honra permitia.
+
+E, acima de tudo, precisava de alguém que ele pudesse confiar. Alguém que conhecesse seus demônios e ainda assim não virasse as costas.
+
+Christian.
+
+O meio-elfo estava no campo de treino quando Edwin o encontrou, praticando com uma espada longa contra um poste de madeira. Os movimentos eram fluidos, precisos — cada golpe um reflexo de anos de treino, de disciplina que Edwin sempre admirara e, às vezes, invejara. A armadura leve reluzia sob o sol da manhã, e o suor já escorria pela testa quando Edwin se aproximou.
+
+— Você sempre acorda cedo demais — comentou Edwin, encostando-se na cerca que separava o campo do resto do pátio.
+
+Christian não parou de treinar, mas a espada desacelerou um pouco.
+
+— E você sempre acorda tarde demais — respondeu, sem olhar para trás. — Ou não dorme. Qual foi dessa vez?
+
+Edwin sorriu, um sorriso que não chegava aos olhos.
+
+— Você ouviu o que aconteceu ontem na sala do trono?
+
+A espada parou. Christian virou-se, os olhos verdes estudando o rosto do príncipe com a mesma atenção que usava para analisar um oponente.
+
+— Todo o castelo ouviu — disse, a voz neutra. — Você desafiou William. Aceitou a campanha. Apostou tudo numa jogada que pode te matar ou te coroar.
+
+— Ou ambos — completou Edwin, com um tom que tentava soar descontraído, mas que carregava algo mais pesado. — Depende de como você olha.
+
+Christian limpou a lâmina com um pano, um gesto cuidadoso, ritualístico.
+
+— Por que você fez isso, Edwin?
+
+A pergunta era simples, mas carregava camadas. Por que agora? Por que dessa forma? Por que arriscar tudo quando poderia ter continuado na sombra, aceitando o destino que sempre soubera que o aguardava?
+
+Edwin caminhou até a cerca, apoiando os braços no madeirame.
+
+— Porque cansei de esperar — respondeu, a voz mais baixa. — Cansei de ser o segundo filho que ninguém leva a sério. Cansei de saber que, quando meu pai morrer, eu vou ser empurrado pra uma catedral qualquer, vestir um hábito que não quero, rezar pra deuses que nunca me ouviram. — Fez uma pausa, olhando para o horizonte além das muralhas. — E porque descobri que há algo que vale a pena lutar. Algo que não é só sobre trono ou poder.
+
+Christian guardou a espada na bainha, aproximando-se da cerca.
+
+— A barda — não era uma pergunta.
+
+— Parte dela — Edwin admitiu. — Mas não é só isso. É… — hesitou, procurando as palavras certas. — É sobre escolha, Christian. Sobre ter o direito de escolher o que fazer com minha própria vida, mesmo que a escolha seja errada.
+
+O meio-elfo estudou o rosto do amigo por um longo momento. Conhecia aquele olhar — era o mesmo que via quando Edwin estava prestes a fazer uma aposta arriscada demais, quando estava prestes a cruzar uma linha que não tinha volta.
+
+— E o que você precisa de mim? — perguntou, finalmente.
+
+Edwin virou-se completamente, encarando Christian de frente.
+
+— Preciso que você venha comigo — disse, sem rodeios. — Na campanha. Como meu braço direito, como meu escudo, como a única pessoa nesse reino inteiro que eu sei que não vai me trair quando as coisas ficarem feias.
+
+Christian não respondeu imediatamente. Os olhos dele passaram por cima do rosto de Edwin, como se estivesse lendo algo escrito em uma língua antiga.
+
+— Você sabe o que está pedindo — disse, por fim. — Se eu me juntar a você, estou escolhando um lado. Estou desafiando William também, indiretamente. E se você perder… se você cair nessa campanha…
+
+— Você cai comigo — completou Edwin, a voz firme. — Eu sei. E eu não vou mentir e dizer que não é um risco. Mas — aproximou-se mais, baixando a voz — você também sabe que, se William ganhar, nada muda. O reino continua sendo o mesmo lugar engessado, as mesmas leis, as mesmas tradições que esmagam quem não nasceu no lugar certo. — Fez uma pausa, deixando as palavras pesarem. — E você também sabe que, se eu ganhar, posso mudar isso. Posso fazer com que pessoas como você — meio-elfos, bastardos, quem não tem sangue puro o suficiente — tenham um lugar real nesse reino, não só como guardas ou servos, mas como pessoas que importam.
+
+Foi uma jogada calculada. Edwin sabia que Christian carregava o peso de ser meio-elfo, de nunca ser completamente aceito nem pelos humanos nem pelos elfos. Sabia que aquela era uma ferida que nunca cicatrizara completamente. E usou isso.
+
+Mas também não era mentira. Se ele conseguisse o trono, se conseguisse o poder, poderia mudar as coisas. Poderia fazer com que o mundo fosse um pouco mais justo para quem sempre esteve na margem.
+
+Christian fechou os olhos por um instante, respirando fundo.
+
+— Você está me manipulando — disse, abrindo os olhos novamente. — Usando minha própria frustração contra mim.
+
+— Sim — Edwin admitiu, sem hesitar. — Estou. Mas também estou sendo honesto. Você conhece meu coração melhor que qualquer pessoa viva, Christian. Você sabe que eu não sou só ambição e ressentimento. Você sabe que há algo mais ali, algo que vale a pena.
+
+O meio-elfo riu, um som amargo.
+
+— Você sempre soube como me convencer — murmurou. — Desde que éramos garotos, você sabia exatamente qual corda puxar.
+
+— Porque eu te conheço — Edwin respondeu, a voz mais suave. — E você me conhece. Não é manipulação quando é verdade, Christian. É só… usar a verdade da forma certa.
+
+Silêncio. O vento passou entre eles, carregando o cheiro de terra molhada e metal. No campo, alguns outros guardas começavam a chegar para o treino matinal, mas mantinham distância, respeitando a conversa privada.
+
+— E se eu disser não? — perguntou Christian, finalmente.
+
+Edwin manteve o olhar fixo nele.
+
+— Então eu vou sozinho — respondeu. — Ou encontro outros. Mas não vai ser a mesma coisa. E você sabe disso.
+
+Era verdade. Christian era mais que um aliado — era a última âncora de humanidade que Edwin tinha. A última pessoa que o lembrava de quem ele poderia ter sido, antes que a ambição e o ressentimento tomassem conta. Sem ele, Edwin sabia que corria o risco de se perder completamente na busca pelo poder.
+
+Christian estudou o rosto do amigo por mais um momento, como se estivesse procurando algum sinal de arrependimento, de hesitação. Não encontrou.
+
+— Eu preciso pensar — disse, finalmente.
+
+— Você tem até o fim do dia — Edwin respondeu. — A campanha começa em uma semana. Preciso saber se posso contar com você ou se preciso encontrar outra pessoa.
+
+Era um ultimato. Deliberado. Edwin sabia que, se desse muito tempo, Christian poderia racionalizar demais, encontrar razões para dizer não. Precisava da resposta enquanto a emoção ainda estava fresca, enquanto a lealdade antiga ainda pesava mais que o medo.
+
+Christian assentiu, a expressão séria.
+
+— Até o fim do dia, então.
+
+Edwin deu um passo para trás, preparando-se para ir embora, mas parou.
+
+— Christian — chamou, fazendo o meio-elfo olhar para ele novamente. — Não importa o que você decidir, você ainda é meu irmão. Isso nunca vai mudar.
+
+Foi a única coisa genuína que disse naquela conversa inteira. E Christian sabia. Por um instante, algo passou pelo rosto dele — algo entre gratidão e tristeza.
+
+— Eu sei — respondeu, a voz baixa. — É por isso que isso é tão difícil.
+
+Edwin inclinou a cabeça e se afastou, deixando Christian sozinho no campo de treino, com suas próprias dúvidas e lealdades conflitantes.
+
+Enquanto caminhava de volta para o castelo, Edwin sentiu o peso daquela conversa. Sabia que tinha manipulado o amigo, usado as feridas antigas, apelado para a lealdade. Mas também sabia que, se Christian dissesse sim, não seria só por causa da manipulação. Seria porque, no fundo, Christian acreditava que Edwin poderia ser mais do que apenas ambição. Que poderia fazer algo bom com o poder, se conseguisse.
+
+E talvez, apenas talvez, Edwin também acreditava nisso.
+
+Por enquanto.
+
+### Capítulo 12
+
+O sol já estava alto quando Edwin deixou o castelo novamente, desta vez com um propósito claro. Christian ainda não havia dado resposta — e Edwin sabia que pressionar demais poderia ter o efeito contrário. Então, enquanto esperava, decidiu começar a montar o resto da equipe que precisaria para a campanha.
+
+Não bastava ter um paladino leal. Precisava de alguém que soubesse navegar pelos cantos escuros do reino, que conhecesse os caminhos que não apareciam nos mapas oficiais, que tivesse contatos em lugares onde a coroa não chegava. Precisava de alguém que não tivesse medo de se sujar.
+
+E, segundo os rumores que circulavam nas tavernas mais baixas da cidade, havia uma mulher que se encaixava perfeitamente nessa descrição.
+
+Ziralyth.
+
+O nome era conhecido em certos círculos — não pelos motivos certos, mas pelos motivos úteis. Ladra, espiã, mercenária ocasional. Dizia-se que ela conhecia todos os segredos que valiam ouro e todos os caminhos que levavam a lugares que não deveriam existir. Dizia-se também que ela não tinha lealdade a ninguém, exceto ao pagamento mais alto.
+
+Edwin encontrou-a numa taverna dos fundos da cidade, um lugar chamado O Cálice Quebrado — ironia que não passou despercebida. O lugar era escuro, cheirava a cerveja velha e algo mais azedo, e a clientela era do tipo que não fazia perguntas sobre o passado de ninguém.
+
+Ziralyth estava sentada num canto, sozinha, uma taça de vinho escuro na frente, os dedos tamborilando na mesa enquanto observava a sala com olhos que não perdiam nada. Cabelos ruivos como fogo, médios, escorridos, caindo pouco abaixo dos ombros em ondas que pareciam capturar e refletir a luz fraca da taverna. Pele branca pálida, quase translúcida, marcada por cicatrizes discretas que contavam histórias que ela provavelmente não compartilharia. Vestia roupas práticas — couro escuro, botas gastas, uma adaga visível na cintura e, provavelmente, outras escondidas em lugares que Edwin preferia não imaginar.
+
+Quando ele se aproximou da mesa, ela não ergueu os olhos imediatamente. Deixou-o ficar ali, em pé, por alguns segundos, como se estivesse testando sua paciência.
+
+— Você está bloqueando minha luz — disse, finalmente, a voz mais grave do que Edwin esperava, com um sotaque que ele não conseguiu identificar.
+
+— Desculpe — respondeu ele, puxando uma cadeira e sentando-se sem ser convidado. — Mas preciso falar com você.
+
+Ziralyth ergueu os olhos então, e Edwin viu que eram de um azul quase transparente, como gelo sob a luz do sol. Inteligentes. Perigosos.
+
+— E quem você pensa que é pra sentar na minha mesa sem pedir? — perguntou, mas havia um brilho de curiosidade nos olhos dela.
+
+— Edwin Wyrmgarde — respondeu, sem hesitar. — Segundo filho do rei. E, aparentemente, seu próximo empregador.
+
+Ziralyth riu, um som seco que não tinha humor.
+
+— Ah, o príncipe desesperado — disse, inclinando a cabeça. — Ouvi falar. Você desafiou seu irmãozinho bonitinho, aceitou uma campanha que provavelmente vai te matar, e agora está procurando pessoas tolas o suficiente pra te seguir nessa loucura.
+
+— Não tolas — corrigiu Edwin. — Competentes. E bem pagas.
+
+— Ah, então você tem ouro — ela sorriu, mostrando dentes brancos e afiados. — Isso muda um pouco as coisas. Mas não muito. Eu não trabalho pra suicidas, mesmo que sejam suicidas ricos.
+
+Edwin estudou o rosto dela por um momento, calculando a melhor abordagem. Poderia tentar apelar para a honra, para o dever, para qualquer coisa nobre. Mas algo lhe dizia que Ziralyth não se importava com nenhuma dessas coisas.
+
+— E se eu te disser que não é suicídio? — perguntou, baixando a voz. — E se eu te disser que sei exatamente o que estou fazendo, e que tenho um plano que pode não só me dar o trono, mas mudar completamente a estrutura desse reino?
+
+Ziralyth tomou um gole de vinho, os olhos fixos nele.
+
+— Todo príncipe desesperado tem um plano — respondeu. — A maioria deles termina com o príncipe morto e o plano esquecido.
+
+— Este é diferente — Edwin se inclinou para frente. — Porque este não é só sobre trono. É sobre um artefato. Um artefato que pode dar poder real a quem o possuir. Poder suficiente para reescrever as leis, para mudar o que significa ser nobre, para fazer com que pessoas como você — e ele fez uma pausa deliberada — não precisem mais se esconder em tavernas de fundo de quinta, vendendo seus serviços pra quem paga mais.
+
+Os olhos dela estreitaram um pouco. Ele havia acertado em algo.
+
+— Que tipo de artefato? — perguntou, a voz mais baixa.
+
+— O Cálice de Maldrakar — Edwin não hesitou. — O cálice da cidade caída de Drakestone. Dizem que contém o sangue do próprio deus da corrupção. Quem beber dele ganha poder suficiente para erguer ou destruir reinos.
+
+Ziralyth ficou em silêncio por um longo momento, estudando o rosto dele como se estivesse procurando sinais de mentira.
+
+— Você está falando sério — disse, finalmente. — Você realmente acredita nessa lenda.
+
+— Não é lenda — Edwin respondeu. — É história. História que a coroa tentou apagar, mas que ainda existe, se você souber onde procurar. E eu sei onde procurar.
+
+Ziralyth riu novamente, mas desta vez havia algo diferente no som — algo que parecia quase respeitoso.
+
+— Você é mais perigoso do que parecem pensar — comentou. — Ou mais louco. Provavelmente ambos.
+
+— E você? — Edwin perguntou. — Está interessada o suficiente para ouvir a proposta completa, ou prefere continuar vendendo seus serviços pra lordes menores que não têm coragem de desafiar nada?
+
+Ela tomou outro gole de vinho, os dedos tamborilando na mesa novamente.
+
+— Quanto você está oferecendo? — perguntou, finalmente.
+
+— O dobro do que qualquer um pagaria pelo mesmo serviço — Edwin respondeu, sem hesitar. — E uma parte do que encontrarmos na jornada. Além disso, se eu conseguir o trono, você terá um lugar na corte. Não como serva, mas como conselheira. Com influência real.
+
+Ziralyth arqueou uma sobrancelha.
+
+— Você está oferecendo poder a uma ladra — disse, como se estivesse testando as palavras. — Isso é… interessante. Ou suicida.
+
+— É realista — Edwin corrigiu. — Eu preciso de pessoas que saibam como o mundo realmente funciona, não de pessoas que acreditam em contos de fadas sobre honra e nobreza. Você sabe como sobreviver. Sabe como conseguir o que quer. E eu preciso disso.
+
+Ela ficou em silêncio por mais um momento, os olhos azuis quase transparentes fixos nele. Então, de repente, estendeu a mão.
+
+— Metade do pagamento adiantado — disse. — E eu quero ver provas de que você realmente sabe onde está esse cálice antes de me comprometer completamente.
+
+Edwin pegou a mão dela — firme, calejada, com cicatrizes de lâminas antigas.
+
+— Trato feito — respondeu.
+
+— Só uma coisa — Ziralyth não soltou a mão dele imediatamente. — Se você me trair, se tentar me usar como bucha de canhão, ou se eu descobrir que você está mentindo sobre esse artefato… — os olhos dela brilharam com algo perigoso — eu não vou só sair. Vou fazer questão de que você se arrependa de ter me encontrado.
+
+Edwin manteve o olhar fixo nela, sem piscar.
+
+— Entendido.
+
+Ela soltou a mão dele, pegou a taça de vinho e ergueu em um brinde irônico.
+
+— Então vamos fazer história, príncipe. Ou vamos morrer tentando.
+
+Edwin sorriu, um sorriso que não chegava aos olhos.
+
+— Ambos, provavelmente.
+
+Ziralyth riu, e desta vez o som tinha um pouco mais de calor.
+
+— Agora você está falando minha língua.
+
+### Capítulo 12.2
+
+Três dias depois, Christian apareceu nos aposentos de Edwin ao entardecer, a armadura já vestida, a espada na cintura, a expressão séria mas resolvida.
+
+— Eu vou — disse, sem preâmbulos. — Mas não porque você me manipulou. Vou porque acredito que você pode fazer algo bom com isso. E porque, se você se perder no caminho, alguém precisa estar lá pra te puxar de volta.
+
+Edwin não sorriu, mas sentiu algo se desenrolar no peito — alívio misturado com culpa.
+
+— Obrigado — respondeu, simplesmente.
+
+— Não me agradeça ainda — Christian advertiu. — Ainda não fizemos nada. E quando fizermos, pode ser que você não goste do que eu tenho a dizer.
+
+Edwin assentiu. Era justo. E era exatamente por isso que precisava de Christian — porque ele era a única pessoa que diria a verdade, mesmo quando a verdade doesse.
+
+— Tem mais uma coisa — Christian continuou, hesitando por um momento. — Eu já recrutei mais uma pessoa. Uma amiga. Confiável.
+
+Edwin arqueou uma sobrancelha, sentindo um leve desconforto.
+
+— Você recrutou alguém sem me consultar?
+
+— Ela é mercenária — Christian explicou, a voz firme. — Mas trabalhou comigo antes. É leal, é forte, e é exatamente o tipo de pessoa que você precisa quando as coisas ficarem feias. — Fez uma pausa. — E honestamente, Edwin, você tem um paladino, um príncipe que não é exatamente um guerreiro, e uma ladra. Vocês precisam de alguém que possa ser a linha de frente de verdade.
+
+Edwin estudou o rosto do amigo por um momento. Havia lógica ali, mas também havia o desconforto de não ter controle sobre quem estava sendo trazido para a equipe.
+
+— Quem é ela? — perguntou, finalmente.
+
+— Brenna — Christian respondeu. — Brenna "Roux" Amberfall. Ela está esperando lá embaixo, no pátio. Quer conhecer?
+
+Edwin hesitou, mas sabia que Christian não traria alguém que não confiasse. E, no fundo, sabia que o amigo tinha razão — precisavam de alguém que pudesse realmente entrar na briga de frente.
+
+— Tudo bem — disse, finalmente. — Mas se ela me trair, ou se eu não gostar dela, ela sai. E você vai ter que lidar com isso.
+
+Christian assentiu, um sorriso leve tocando os lábios.
+
+— Justo. Mas acho que você vai gostar dela. Ela é… diferente.
+
+Desceram até o pátio do castelo, onde a luz do entardecer ainda iluminava os pátios de treino. E foi lá que Edwin viu ela pela primeira vez.
+
+Brenna era… impressionante. Não apenas pela altura — ela devia ter quase um metro e oitenta, o que a tornava mais alta que a maioria dos homens — mas pela presença. Cabelos ruivos longos, completamente cacheados, caindo em ondas rebeldes sobre os ombros e pelas costas, como chamas dançantes. A pele clara, marcada por cicatrizes de batalhas antigas, e um sorriso largo e genuíno que parecia iluminar o rosto inteiro.
+
+Mas o que realmente chamava atenção era o machado. Um machado de guerra enorme, de duas pontas, que ela carregava com uma naturalidade que sugeria que era mais leve que uma pena nas mãos dela. O cabo era longo, quase tão alto quanto ela, e as lâminas reluziam sob a luz do sol poente.
+
+Quando viu Christian, o sorriso dela se alargou ainda mais, e ela ergueu uma mão em saudação.
+
+— Christian! — gritou, a voz alta e alegre, carregando um sotaque que Edwin não conseguiu identificar. — Finalmente! Eu estava começando a pensar que você tinha me esquecido!
+
+Christian riu, aproximando-se e abraçando-a — um abraço que ela retribuiu com força, levantando-o quase do chão apesar da diferença de altura.
+
+— Brenna, este é Edwin — disse, quando se separaram. — Edwin, esta é Brenna.
+
+Brenna olhou para Edwin, os olhos verdes brilhando com curiosidade e algo que parecia quase… empolgação.
+
+— O príncipe desesperado — disse, estendendo a mão. — Christian me contou sobre você. E sobre essa campanha maluca que vocês vão fazer.
+
+Edwin pegou a mão dela — firme, calejada, com uma força que quase esmagou os dedos dele.
+
+— Desesperado é uma palavra forte — respondeu, tentando manter a compostura enquanto sentia os ossos da mão reclamarem.
+
+— Ah, não precisa ser modesto — Brenna riu, um som alto e contagiante. — Eu adoro uma boa história de desespero e ambição. E Christian disse que vocês vão precisar de alguém que saiba quebrar algumas cabeças. — Ergueu o machado, girando-o com uma facilidade que não deveria ser possível. — E eu sou muito boa em quebrar cabeças.
+
+Edwin estudou o rosto dela por um momento. Havia algo genuíno ali, algo que não parecia falso ou calculado. Ela era exatamente o que aparentava ser: uma mercenária alegre, forte, e aparentemente leal.
+
+— Você já trabalhou com Christian antes? — perguntou.
+
+— Algumas vezes — Brenna assentiu. — Ele me salvou de uma situação complicada há alguns anos. Desde então, sempre que ele precisa de ajuda, eu apareço. E ele sempre paga bem. — Sorriu novamente. — Mas desta vez, parece que vai ser mais interessante do que o normal. Uma campanha pelo trono? Um artefato mágico? Isso é muito melhor do que escoltar caravanas ou proteger lordes bêbados.
+
+Edwin olhou para Christian, que manteve a expressão neutra, mas havia algo nos olhos dele que dizia que ele confiava nela completamente.
+
+— Tudo bem — disse Edwin, finalmente. — Você está dentro. Mas saiba que isso não vai ser fácil. E pode ser perigoso.
+
+— Perigoso é o meu nome do meio — Brenna riu novamente. — E fácil é chato. Eu prefiro interessante.
+
+Edwin não conseguiu evitar um sorriso. Havia algo contagiante na alegria dela, algo que fazia com que até mesmo ele, cínico como era, sentisse um pouco de esperança.
+
+— Então está combinado — disse. — Partimos amanhã ao amanhecer. Esteja pronta.
+
+— Sempre estou — Brenna respondeu, girando o machado novamente. — E não se preocupe, príncipe. Quando as coisas ficarem feias, eu vou estar na frente. É o que eu faço de melhor.
+
+E, olhando para ela, para a força e a confiança que emanavam dela, Edwin acreditou.
+
+### Capítulo 13
+
+No dia seguinte, os quatro partiram antes do amanhecer. Edwin, Christian, Ziralyth e Brenna, cada um montado em um cavalo, suprimentos mínimos, mapas que Ziralyth havia conseguído através de contatos duvidosos. O objetivo era chegar até as ruínas de um antigo templo onde, segundo os rumores que Edwin havia coletado, poderia haver informações sobre a localização da cidade caída de Drakestone.
+
+A estrada era estreita, cercada por florestas densas de ambos os lados. O sol ainda estava baixo no horizonte, projetando sombras longas e sinistras sobre o caminho de terra. Ziralyth liderava, conhecendo melhor aquelas rotas do que os outros. Christian seguia atrás, os olhos constantemente varrendo a paisagem em busca de perigos. Brenna ficava ao lado de Edwin, o machado enorme apoiado no ombro, cantarolando uma melodia baixa enquanto observava a estrada com um sorriso quase expectante. Edwin ficava no meio, observando, calculando, tentando não pensar demais no que estava fazendo.
+
+Foi Ziralyth quem percebeu primeiro.
+
+— Alguém está nos seguindo — murmurou, sem diminuir o passo, mas a mão já se movendo em direção à adaga na cintura.
+
+Christian não precisou olhar para confirmar. Os anos de treino o haviam ensinado a sentir quando algo estava errado.
+
+— Quantos? — perguntou, a voz baixa.
+
+— Pelo menos cinco — Ziralyth respondeu. — Provavelmente mais. E não são bandidos comuns. Andam muito organizados.
+
+Edwin sentiu o estômago se contrair. Mercenários. Provavelmente enviados por William, ou por algum lorde que já havia escolhido um lado na disputa. A campanha oficial ainda não havia começado, mas a guerra não oficial já estava em andamento.
+
+— Temos duas opções — disse Ziralyth, os olhos fixos na estrada à frente. — Corremos e tentamos perdê-los, ou paramos aqui e os enfrentamos enquanto ainda temos a vantagem do terreno.
+
+— Qual terreno? — Christian perguntou, olhando ao redor. — Estamos numa estrada aberta.
+
+— Exatamente — Ziralyth sorriu, um sorriso perigoso. — Eles vão esperar que a gente corra. Vão esperar que a gente tenha medo. Se pararmos e virarmos pra enfrentá-los, vamos pegar eles de surpresa.
+
+Brenna parou de cantarolar, e o sorriso dela se transformou em algo mais feroz.
+
+— Eu voto em enfrentar — disse, a voz carregando uma empolgação que Edwin não conseguia entender. — Estou com fome de uma boa briga.
+
+Edwin estudou o rosto dela por um momento. Havia uma lógica ali, mas também havia o risco enorme. Se fossem muitos, se fossem bem treinados, os quatro poderiam não sair vivos dali.
+
+Mas também sabia que, se corressem, os mercenários os seguiriam até encontrarem um lugar melhor para atacar. E, nesse caso, perderiam qualquer vantagem que pudessem ter.
+
+— Paramos — decidiu, finalmente. — Mas não aqui. Mais adiante, onde a estrada se estreita. Vamos forçá-los a vir por um de cada vez.
+
+Ziralyth arqueou uma sobrancelha, impressionada.
+
+— Você sabe alguma coisa sobre tática, príncipe.
+
+— Eu observo — Edwin respondeu. — E aprendo rápido.
+
+Caminharam por mais alguns minutos, até que a estrada realmente se estreitou, cercada por rochas de um lado e uma encosta íngreme do outro. Era o lugar perfeito para uma emboscada — ou para ser emboscado.
+
+Desmontaram, amarraram os cavalos atrás de uma formação rochosa, e se posicionaram. Christian ficou na frente, a espada desembainhada, o escudo erguido. Ziralyth subiu nas rochas, ficando escondida, com adagas prontas. Brenna ficou ao lado de Christian, o machado de duas pontas agora nas mãos, os músculos tensos, o sorriso feroz ainda no rosto. Edwin ficou atrás, uma espada curta na mão — não era o melhor lutador, mas sabia o básico, e tinha outras habilidades.
+
+Não demorou muito. Os cascos dos cavalos ecoaram na estrada, aproximando-se. Edwin contou mentalmente: seis, talvez sete cavaleiros. Todos com armaduras, todos com armas. Profissionais.
+
+Quando apareceram na curva da estrada, pararam ao ver Christian e Brenna bloqueando o caminho. O líder, um homem alto com cicatrizes no rosto, sorriu.
+
+— O segundo príncipe e seus cachorrinhos — disse, a voz carregando desprezo. — Pensamos que vocês iam correr.
+
+— Desculpe desapontar — Christian respondeu, a voz firme. — Mas vocês vão ter que trabalhar um pouco mais do que isso.
+
+O líder riu, e os outros mercenários desmontaram, desembainhando espadas.
+
+— Matem o meio-elfo primeiro — ordenou. — Depois o príncipe. As mulheres provavelmente já fugiram.
+
+Foi o erro deles.
+
+Ziralyth apareceu das rochas como uma sombra, duas adagas voando antes que qualquer um pudesse reagir. Uma acertou o ombro do líder, fazendo-o gritar. A outra pegou um dos mercenários no pescoço, derrubando-o instantaneamente.
+
+Mas foi Brenna quem realmente mudou o jogo.
+
+Com um grito de guerra que ecoou pelas rochas, ela avançou, o machado girando em um arco devastador. O primeiro mercenário que tentou bloqueá-la descobriu, muito tarde, que não havia escudo que pudesse parar aquele golpe. O machado cortou através da armadura como se fosse tecido, e o homem caiu, o peito aberto.
+
+Christian avançou no mesmo instante, o escudo bloqueando um golpe enquanto a espada cortava o braço de outro atacante. O movimento era fluido, preciso — anos de treino transformados em instinto puro.
+
+Brenna não parou. Ela se moveu como uma tempestade, o machado cortando o ar com um som assustador, cada golpe mais devastador que o anterior. Dois mercenários tentaram cercá-la, mas ela girou o machado em um movimento circular, derrubando ambos com um único golpe. O sorriso feroz nunca saiu do rosto dela — ela estava se divertindo.
+
+Edwin não tinha a mesma habilidade, mas tinha algo que os mercenários não esperavam: astúcia. Quando um deles avançou em sua direção, ele não tentou bloquear o golpe frontalmente. Em vez disso, jogou terra nos olhos do atacante, cegando-o momentaneamente, e então enfiou a espada curta na junta da armadura, no ponto onde o braço encontrava o peito.
+
+O mercenário caiu, surpreso, e Edwin não teve tempo de pensar no que havia feito. Outro já estava vindo em sua direção, mas Brenna interveio, o machado cortando o atacante pela metade antes que ele pudesse chegar perto de Edwin.
+
+A batalha foi rápida e brutal. Ziralyth se movia como uma dançarina mortal, as adagas encontrando pontos fracos nas armaduras, o corpo girando e se esquivando de golpes que teriam matado alguém menos ágil. Christian era uma parede de aço, bloqueando, desviando, contra-atacando com precisão cirúrgica. Brenna era uma força da natureza, devastando tudo à sua frente com uma alegria quase infantil. E Edwin… Edwin sobreviveu. Não foi elegante, não foi heroico, mas sobreviveu.
+
+Quando o último mercenário caiu, o silêncio voltou à estrada, quebrado apenas pelo som da respiração ofegante dos três e pelo gotejar de sangue no chão.
+
+Ziralyth desceu das rochas, limpando as adagas na roupa de um dos mortos.
+
+— Sete contra quatro — comentou, sem emoção. — Não foi mal para uma primeira vez trabalhando juntos.
+
+Brenna riu, limpando o sangue do machado com um pano.
+
+— Sete contra quatro? — ela perguntou, o sorriso ainda largo. — Pareceu mais fácil que isso. Eles nem chegaram perto de vocês.
+
+Christian estava ajoelhado ao lado de um dos mercenários, verificando se ainda estava vivo. Quando confirmou que não estava, fechou os olhos do cadáver e sussurrou uma oração silenciosa.
+
+— Eles eram mercenários — disse, levantando-se. — Profissionais. Alguém pagou bem para que eles nos matassem.
+
+— William — Edwin respondeu, sem hesitar. — Ou alguém que já escolheu o lado dele.
+
+— Provavelmente — Ziralyth concordou. — Mas agora eles sabem que não vai ser fácil. E isso pode ser uma vantagem.
+
+Edwin olhou para os corpos espalhados na estrada, sentindo algo estranho no peito. Não era remorso — não exatamente. Mas também não era a satisfação que esperava sentir. Era algo mais complexo, algo que ele não conseguia nomear.
+
+— Vamos embora daqui — disse, finalmente. — Antes que mais alguém apareça.
+
+Os quatro montaram novamente, deixando os corpos para trás. Mas algo havia mudado entre eles. A primeira batalha juntos havia criado um laço que não existia antes — um laço forjado em sangue e sobrevivência.
+
+Brenna ainda sorria, limpando o sangue do machado, mas havia algo mais sério no olhar dela agora. Ela havia visto o que eles eram capazes de fazer juntos. E, pelo que Edwin podia ver, ela gostava do que viu.
+
+E Edwin sabia que, para o que estava por vir, ia precisar de muito mais do que isso. Mas agora, pelo menos, tinha alguém que poderia realmente entrar na briga de frente.
+
 ---
 
 ## Rascunhos e Notas

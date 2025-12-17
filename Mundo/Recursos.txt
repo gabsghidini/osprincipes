@@ -55,13 +55,28 @@ Um cavaleiro de alma pura e coração indomável, Christian acredita ser seu dev
 Ziralyth
 Tiefling, Wizard, Chaotic Neutral
 Misteriosa, irreverente e carregada pelo peso de pactos forjados pela necessidade, Ziralyth aprendeu a sobreviver em um mundo que a rejeita. De personalidade ácida e comportamento provocativo, esconde um coração generoso atrás de sarcasmo e distância calculada. Enquanto seus dons arcanos a ligam a forças que preferiria esquecer, é sua humanidade — ou o que restou dela — que a torna única. Contraponto perfeito ao paladino que tanto despreza quanto admira, Ziralyth mostrará a Christian que a verdadeira bondade muitas vezes nasce nas sombras, e que não há luz sem escuridão. Cansada de esperar pelo destino, ela mesma o forjou.
+
+Descrição Física:
+- Pele branca pálida, quase translúcida
+- Cabelos ruivos como fogo, médios, escorridos, caindo pouco abaixo dos ombros
+- Olhos azuis quase transparentes, como gelo sob a luz do sol
+- Marcada por cicatrizes discretas que contam histórias não compartilhadas
+
 Apelidos: 
                   * Minha luz escura (Christian), não é um apelido curto, mas é uma forma poética dele se referir a ela — alguém que brilha, mesmo vinda das sombras.
 
 
-Brenna “Roux” Amberfall
+Brenna "Roux" Amberfall
 Humana, Bárbara Guardiã Ancestral, Chaotic Good
-Imensa em estatura e em coração, Brenna é o tipo de pessoa que ri alto, ama intensamente e parte para a briga antes de perguntar. De cabelos ruivos desgrenhados e um temperamento explosivo, é o escudo e o punho da party, uma força da natureza em forma humana. Movida pelo amor incondicional que sente por sua companheira, a drow Nymeris, Brenna se recusa a recuar quando o perigo ameaça aqueles que ama. Apesar da aparência intimidadora e do gosto por desafios físicos, carrega consigo uma ternura quase infantil e um senso de lealdade feroz. Onde Brenna está, ninguém luta sozinho.
+Imensa em estatura e em coração, Brenna é o tipo de pessoa que ri alto, ama intensamente e parte para a briga antes de perguntar. Alegre, feliz, baseada na Karlach de Baldur's Gate 3, é o escudo e o punho da party, uma força da natureza em forma humana. Movida pelo amor incondicional que sente por sua companheira, a drow Nymeris, Brenna se recusa a recuar quando o perigo ameaça aqueles que ama. Apesar da aparência intimidadora e do gosto por desafios físicos, carrega consigo uma ternura quase infantil e um senso de lealdade feroz. Onde Brenna está, ninguém luta sozinho.
+
+Descrição Física:
+- Altura: 1,80m (muito grande, imponente)
+- Cabelos ruivos longos, completamente cacheados, caindo em ondas rebeldes
+- Fisicamente parecida com a Valente (Brave) da Pixar, mas muito maior e mais forte
+- Machado de guerra enorme de duas pontas, que carrega com facilidade
+- Extremamente forte e musculosa
+- Sorriso largo e genuíno, sempre alegre
 Nymeris Vorn’drin
 Drow, Clériga do Crepúsculo, Neutral Good
 Serena, sábia e dotada de uma aura que mistura melancolia e esperança, Nymeris é a guardiã silenciosa do grupo. De pele sombria e olhos prateados, caminha entre luz e trevas sem pertencer a nenhuma delas. Como clériga do crepúsculo, dedica-se a proteger os vivos e honrar os mortos, servindo como curandeira e voz da razão quando os ânimos se exaltam. Sua fé, no entanto, não é cega — é construída sobre escolhas, dúvidas e cicatrizes. Ao lado de Brenna, sua companheira e confidente, Nymeris se torna não apenas um farol em meio à escuridão, mas a bússola moral que impede a party de se perder.
