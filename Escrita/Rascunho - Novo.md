@@ -2949,8 +2949,150 @@ E o mundo explodiu em luz.
 ### Capítulo 29
 *Emboscada dos mercenários do primeiro príncipe. Grande batalha. Christian é ferido gravemente.*
 
+A luz branca que explodiu quando Edwin tocou no cálice foi tão intensa que por um momento, ninguém conseguiu ver nada. Quando a visão voltou, o grupo estava de volta à sala das armadilhas, mas agora o cálice estava nas mãos de Edwin — negro como obsidiana, cravejado de rubis que pulsavam como corações vivos.
+
+O poder que emanava dele era quase palpável, fazendo o ar vibrar ao redor. Edwin o segurava com cuidado, sentindo o peso, a promessa, a corrupção que estava contida ali.
+
+— Conseguimos — ele sussurrou, a voz quase inaudível.
+
+— Sim — Nymeris respondeu, mas havia algo na voz dela — preocupação, talvez, ou medo. — Conseguimos. Mas agora precisamos sair daqui. E rápido.
+
+O grupo concordou, e começaram a subir de volta pelo corredor, saindo das profundezas das ruínas. Mas quando finalmente chegaram à superfície, ao ar livre, viram algo que fez o estômago de todos se contrair.
+
+Eles estavam cercados.
+
+Mas não eram pessoas reais. Eram formas. Formas que pareciam humanas, mas que não eram. Eram espectros, ilusões, fantasmas de uma batalha antiga que ainda ecoava nas ruínas. Mas pareciam reais. Tão reais que, por um momento, o grupo não conseguiu distinguir.
+
+Formas vestidas com as cores de William, formas com armas desembainhadas, formas com olhos vazios que não mostravam nada além de uma determinação antiga. E na frente, uma forma que parecia Marcus Thorne — o capitão da guarda de William, mas não era ele. Era apenas um eco, uma memória, uma ilusão.
+
+— Príncipe Edwin — a forma disse, a voz ecoando como se viesse de muito longe. — Parece que você conseguiu o que queria. Mas infelizmente, não vai conseguir levá-lo de volta.
+
+Edwin sentiu o cálice nas mãos, sentindo o poder, a promessa. Mas também sentiu algo estranho — as formas não eram reais, mas pareciam reais. E se pareciam reais, poderiam machucar? Poderiam matar?
+
+— E se eu não quiser entregar? — perguntou, a voz mais alta do que pretendia.
+
+— Então vamos ter que tomar — a forma respondeu, e então, sem mais avisos, as ilusões avançaram.
+
+A batalha começou imediatamente. Brenna foi a primeira a entrar em combate, o machado girando em um arco devastador, cortando através das primeiras formas. Mas algo estranho aconteceu — quando o machado as atingia, elas se desfaziam em névoa, mas então se reformavam, como se o golpe não tivesse feito nada.
+
+— Elas não são reais! — Ziralyth gritou, mas mesmo assim, quando uma das formas a atingiu com uma espada, ela sentiu a dor. Real. Muito real.
+
+— São ilusões — Nymeris disse, os olhos prateados brilhando. — Mas podem machucar. Podem matar. A magia aqui é antiga. Muito antiga.
+
+O grupo continuou lutando, mas as formas não paravam. Continuavam chegando, continuavam atacando, e mesmo que não fossem reais, os ferimentos eram. O sangue era. A dor era.
+
+E Christian.
+
+Christian lutou como um paladino. A espada brilhava com uma luz dourada, cada golpe abençoado, cada movimento uma oração. Ele protegia o grupo, colocando-se entre as formas e os outros, absorvendo golpes que deveriam ter atingido alguém mais fraco.
+
+Mas havia muitas. Demais.
+
+As formas continuavam chegando, e mesmo com toda a habilidade do grupo, eles estavam sendo empurrados para trás, cercados, encurralados.
+
+Foi então que aconteceu.
+
+Uma forma, mais esperta que as outras, viu a abertura. Viu que Christian estava protegendo os outros, e viu que, se conseguisse tirá-lo do caminho, o resto do grupo cairia. Então, quando Christian estava distraído, bloqueando um golpe que teria atingido Nymeris, a forma avançou.
+
+A lança perfurou a armadura de Christian como se fosse papel, entrando pelo lado, atravessando o corpo, saindo pelo outro lado. Christian gritou, um som que não era humano, e então caiu de joelhos, a espada caindo de suas mãos.
+
+— Christian! — Edwin gritou, mas não podia chegar até ele. Estava cercado, lutando por sua própria vida.
+
+Nymeris correu até Christian, as mãos brilhando com uma luz prateada, tentando curar, tentando salvar. Mas o ferimento era grave. Muito grave. E mesmo com toda sua magia, ela não conseguia pará-lo completamente.
+
+— Não — Christian sussurrou, a voz quebrada. — Não pare. Continue lutando. Não deixem elas pegarem o cálice.
+
+Mas Edwin viu. Viu o sangue. Viu a dor. Viu que Christian estava morrendo. E viu que, se não fizesse algo, todos eles morreriam ali.
+
+E então, olhou para o cálice nas mãos dele.
+
+E pensou no que os sete lordes haviam oferecido.
+
+E pensou no preço.
+
+E então, tomou uma decisão.
+
 ### Capítulo 30
 *Edwin sacrifica inocentes ou usa uma solução condenável para vencer a batalha, chocando Christian e Ziralyth.*
+
+Edwin não hesitou. Não pensou duas vezes. Apenas agiu.
+
+O cálice estava nas mãos dele, e ele sabia o que precisava fazer. Os sete lordes haviam dito que o poder estava ali, esperando. E ele precisava desse poder. Precisava salvar Christian. Precisava salvar todos eles.
+
+Mas também sabia que havia um preço. Um preço que talvez não estivesse disposto a pagar.
+
+Mas então olhou para Christian, deitado no chão, o sangue escorrendo, a vida se esvaindo. E sabia que não tinha escolha.
+
+Então, levantou o cálice, e começou a sussurrar palavras antigas. Palavras que não conhecia, mas que vieram naturalmente, como se sempre tivessem estado ali, esperando. Palavras que eram parte do ritual que havia visto na carta de Frederik, no diagrama que Ziralyth havia descoberto.
+
+E então, algo aconteceu.
+
+O ar ao redor começou a vibrar. E então, de repente, formas começaram a aparecer — formas que não eram humanas, mas que pareciam ter sido feitas de sombra e desespero. Criaturas. Criaturas que Edwin havia invocado.
+
+Mas não eram apenas criaturas. Eram mais do que isso. Eram almas. Almas de pessoas que haviam morrido nas ruínas de Drakestone, almas que haviam sido presas ali, almas que agora respondiam ao chamado do cálice.
+
+E elas atacaram.
+
+Atacaram as ilusões sem piedade, sem hesitação. Destruíram, aniquilaram, desfizeram em névoa. E as formas, que haviam estado ganhando, agora estavam perdendo. Perdendo de forma brutal, de forma horrível.
+
+Mas havia um problema.
+
+As criaturas não distinguiam entre inimigo e aliado. Elas atacavam tudo. Tudo que estava ali.
+
+E havia outras formas. Formas que pareciam diferentes. Formas que pareciam ser apenas pessoas comuns — cozinheiros, escudeiros, pessoas que não tinham nada a ver com a batalha. Ilusões, é claro, mas pareciam reais. Pareciam inocentes.
+
+E as criaturas as destruíram também.
+
+Destruíram gritando, destruíram tentando fugir, destruíram sem entender o que estava acontecendo.
+
+E Edwin viu. Viu tudo. Viu as criaturas destruindo não apenas as formas de soldados, mas também as formas de inocentes. Viu a névoa se desfazendo. Viu o horror.
+
+E não fez nada para pará-las.
+
+Porque sabia que, se parasse, as formas voltariam a atacar. E Christian morreria. E todos eles morreriam.
+
+Então, apenas observou. Observou enquanto as criaturas destruíam. Observou enquanto as formas se desfaziam. Observou enquanto ilusões de pessoas inocentes eram aniquiladas.
+
+E quando finalmente acabou, quando as últimas formas foram destruídas, quando as criaturas se desfizeram em fumaça, o que restou foi um campo vazio. As ilusões haviam desaparecido, deixando apenas o grupo, o cálice, e o silêncio.
+
+E no meio de tudo isso, Christian estava deitado, ainda vivo, mas apenas porque Nymeris havia conseguido estabilizá-lo a tempo. E ele estava olhando para Edwin. Olhando com uma expressão que Edwin nunca havia visto antes.
+
+Desgosto. Horror. Decepção.
+
+— O que você fez? — Christian perguntou, a voz quebrada, mas carregando uma raiva que Edwin nunca havia ouvido antes.
+
+— O que eu tinha que fazer — Edwin respondeu, mas a voz não tinha convicção. — Salvei você. Salvei todos nós.
+
+— A que custo? — Christian perguntou, e então olhou ao redor, para o campo vazio onde as formas haviam estado. — A que custo, Edwin? Você viu o que fez. Você viu as criaturas destruindo tudo. Você viu elas atacando formas que pareciam inocentes. E você não fez nada para pará-las.
+
+— Eram apenas ilusões — Edwin respondeu, a voz mais alta do que pretendia. — Eram apenas espectros. Não eram pessoas reais. Não havia ninguém ali para salvar. Não havia ninguém ali para matar. Eram apenas formas. Apenas memórias.
+
+— Mas você não sabia disso — Christian disse, a voz mais dura. — Você não sabia que eram apenas ilusões quando invocou as criaturas. Você não sabia quando deixou elas atacarem. Você não sabia quando viu as formas de inocentes sendo destruídas. Você apenas agiu. E não fez nada para pará-las.
+
+Edwin hesitou, porque Christian estava certo. Ele não sabia. Não tinha certeza. E mesmo que fossem apenas ilusões, ele havia visto. Havia visto as criaturas atacando formas que pareciam inocentes. E não havia feito nada.
+
+— Você viu o que faria — Ziralyth disse, a voz baixa, mas carregando algo que Edwin não conseguiu identificar. — Você viu o que faria se fossem pessoas reais. E você não hesitou. Você não parou. Você apenas deixou acontecer.
+
+— Mas não eram reais — Edwin insistiu, mas a voz não tinha convicção. — Não havia culpa real nesse trial. Não havia pessoas reais para morrer.
+
+— Mas você não sabia — Christian respondeu, e pela primeira vez, Edwin viu algo diferente nos olhos do amigo. Não era apenas raiva. Era tristeza. Era desespero. — Você não sabia, e mesmo assim, você agiu. Você usou o poder do cálice. Você invocou criaturas que matariam qualquer coisa. E você não fez nada para pará-las quando viu formas que pareciam inocentes sendo destruídas.
+
+Christian fez uma pausa, e então algo mudou na expressão dele. A raiva diminuiu um pouco, mas a decepção permaneceu.
+
+— Talvez você esteja certo — disse, finalmente. — Talvez fossem apenas ilusões. Talvez não houvesse culpa real. Mas eu vi o que você faria. Eu vi o que você faria se fossem pessoas reais. E isso… isso não é algo que eu consigo esquecer.
+
+Edwin olhou para ele, e então para Ziralyth, e então para os outros. E viu que todos estavam olhando para ele com a mesma expressão. A mesma decepção. O mesmo horror.
+
+E então, pela primeira vez, sentiu algo que não conhecia.
+
+Remorso.
+
+Mas também sentiu algo mais. Algo que o assustou ainda mais.
+
+Satisfação.
+
+Porque havia funcionado. Porque havia vencido. Porque havia conseguido o que queria.
+
+E isso era o que mais o assustava.
 
 ### Capítulo 31
 *Christian sobrevive, mas começa a enxergar Edwin de forma diferente.*
