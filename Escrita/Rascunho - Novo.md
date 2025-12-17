@@ -1530,6 +1530,152 @@ Brenna ainda sorria, limpando o sangue do machado, mas havia algo mais sério no
 
 E Edwin sabia que, para o que estava por vir, ia precisar de muito mais do que isso. Mas agora, pelo menos, tinha alguém que poderia realmente entrar na briga de frente.
 
+### Capítulo 14
+
+A viagem continuou por mais dois dias, seguindo rotas que Ziralyth conhecia de memória. A estrada os levou através de vales estreitos e florestas densas, sempre mantendo distância das rotas principais — uma precaução que se mostrou sábia quando, na manhã do terceiro dia, avistaram uma coluna de fumaça subindo ao longe.
+
+— Incêndio? — perguntou Brenna, erguendo a mão para proteger os olhos do sol.
+
+— Ou ataque — Ziralyth respondeu, a voz neutra. — Não é incomum nessa região. Bandidos, ou talvez mais mercenários do seu irmão.
+
+Edwin sentiu o estômago se contrair. A ideia de mais violência, mais morte, não o incomodava tanto quanto deveria. Mas também sabia que não podiam simplesmente ignorar. Se houvesse pessoas feridas, se houvesse alguém que precisasse de ajuda…
+
+— Vamos ver — decidiu, finalmente. — Mas com cuidado. Se for uma armadilha, saímos rápido.
+
+Ziralyth assentiu, e os quatro seguiram em direção à fumaça, mantendo-se nas sombras das árvores. Quando chegaram perto o suficiente para ver o que estava acontecendo, a cena que se desenrolou diante deles não era o que esperavam.
+
+Era uma pequena vila — mais um aglomerado de casas de madeira e palha do que uma vila propriamente dita. Várias casas estavam em chamas, e corpos espalhados pelo chão. Mas não eram apenas corpos de vítimas. Havia também corpos de atacantes — homens com armaduras simples, provavelmente bandidos que haviam tentado saquear o lugar.
+
+E, no meio de tudo aquilo, havia uma figura.
+
+Uma mulher drow, de pele sombria que parecia quase roxa sob a luz do sol, cabelos brancos como neve presos em uma trança que caía sobre o ombro. Vestia roupas simples, mas bem feitas — uma túnica cinza escura com símbolos bordados que Edwin não reconheceu, calças de couro macio, botas práticas. Nas mãos, ela segurava um cajado de madeira escura, e ao redor dela, uma luz suave e prateada parecia emanar, como se fosse uma auréola de crepúsculo.
+
+Mas o que realmente chamava atenção era o que ela estava fazendo.
+
+Ela estava ajoelhada ao lado de uma criança ferida, as mãos pousadas sobre o peito pequeno, os olhos fechados. Uma luz prateada envolvia a criança, e, enquanto eles observavam, a ferida começou a fechar, a pele se regenerando diante dos olhos. A criança, que antes estava pálida e quase sem vida, começou a respirar mais forte, e os olhos se abriram.
+
+A drow abriu os olhos também — olhos prateados que pareciam ver através das coisas, como se estivessem olhando para algo além do mundo físico. Ela sorriu suavemente para a criança, acariciando o rosto dela antes de se levantar.
+
+— Mãe! — a criança gritou, correndo em direção a uma mulher que estava observando, chorando de alívio.
+
+A drow virou-se então, e seus olhos prateados pousaram nos quatro que observavam das sombras. Ela não parecia surpresa — como se já soubesse que estavam ali.
+
+— Vocês podem sair — disse, a voz suave mas firme, com um sotaque que Edwin não conseguiu identificar. — Não há mais perigo aqui.
+
+Edwin hesitou, mas algo na postura dela, na forma como ela havia curado a criança sem hesitar, fez com que ele saísse das sombras. Os outros o seguiram.
+
+— Você é uma clériga — Christian disse, a voz carregando algo entre admiração e curiosidade.
+
+— Nymeris — a drow respondeu, inclinando a cabeça. — Clériga do Crepúsculo. E vocês são?
+
+— Viajantes — Edwin respondeu, antes que Christian pudesse dizer algo mais. — Estamos em uma missão importante. E você… você está sozinha aqui?
+
+Nymeris estudou o rosto dele por um momento, os olhos prateados parecendo ver através de qualquer máscara que ele tentasse usar.
+
+— Estava — respondeu, finalmente. — Mas os bandidos vieram há algumas horas. Tentei ajudar, mas cheguei tarde demais para alguns. — Fez uma pausa, olhando para os corpos espalhados. — Consegui salvar alguns. Mas não todos.
+
+Havia uma tristeza profunda na voz dela, mas também uma resolução que Edwin reconheceu. Era a mesma determinação que ele via em Christian — a vontade de ajudar, mesmo quando não era possível salvar todos.
+
+— Você precisa de ajuda? — Christian perguntou, a voz suave. — Para enterrar os mortos, ou para ajudar os feridos?
+
+Nymeris olhou para ele, e por um instante, algo passou entre os dois — um reconhecimento, uma compreensão silenciosa. Edwin não conseguiu identificar o que era, mas sabia que havia algo ali.
+
+— Já fiz o que pude — Nymeris respondeu. — Os vivos estão curados. Os mortos… os mortos já foram honrados. — Fez uma pausa. — Mas obrigada pela oferta.
+
+Edwin estudou o rosto dela por um momento, calculando. Eles precisavam de um curandeiro. Precisavam de alguém que pudesse manter o grupo vivo durante a jornada que estava por vir. E Nymeris parecia ser exatamente o que precisavam.
+
+— Você está indo para algum lugar específico? — perguntou.
+
+Nymeris arqueou uma sobrancelha, como se soubesse exatamente o que ele estava fazendo.
+
+— Não — respondeu. — Estou apenas… viajando. Ajudando onde posso. — Fez uma pausa. — Por que pergunta?
+
+— Porque estamos procurando alguém com suas habilidades — Edwin respondeu, sem hesitar. — Temos uma missão. Uma missão importante. E precisamos de alguém que possa curar, que possa manter o grupo vivo quando as coisas ficarem difíceis.
+
+Nymeris ficou em silêncio por um momento, estudando cada um deles. Os olhos prateados passaram por Christian, por Ziralyth, por Brenna, e finalmente voltaram para Edwin.
+
+— Que tipo de missão? — perguntou, finalmente.
+
+— Uma campanha — Edwin respondeu. — Uma campanha pelo trono. E uma busca por um artefato que pode mudar o destino de um reino.
+
+Nymeris não pareceu surpresa. Na verdade, parecia quase como se já soubesse.
+
+— E por que eu deveria me juntar a vocês? — perguntou. — O que me garante que essa missão vale a pena? Que não vou estar ajudando alguém que vai usar esse poder para fazer mais mal do que bem?
+
+Foi uma pergunta direta, sem rodeios. E Edwin apreciou isso.
+
+— Nada — respondeu, honestamente. — Não posso te garantir nada. Mas posso te dizer que, se conseguirmos o que estamos procurando, podemos mudar as coisas. Podemos fazer com que pessoas como você — drow, meio-elfos, quem não tem sangue puro o suficiente — tenham um lugar real nesse reino, não só como curandeiros ou servos, mas como pessoas que importam.
+
+Nymeris ficou em silêncio por mais um momento, os olhos prateados fixos nele. Então, olhou para Christian novamente, e algo passou entre eles — algo que Edwin não conseguiu identificar completamente, mas que parecia ser um reconhecimento de algo compartilhado.
+
+— Eu vou — disse, finalmente. — Mas não por você, príncipe. Vou porque acredito que há pessoas aqui que realmente querem fazer o bem. — Os olhos dela pousaram em Christian novamente. — E porque, às vezes, a única forma de fazer o bem é estar presente quando as coisas ficam ruins.
+
+Edwin não se importou com a resposta. O que importava era que ela estava dentro.
+
+— Então está combinado — disse. — Bem-vinda ao grupo, Nymeris.
+
+A drow inclinou a cabeça, um sorriso suave tocando os lábios.
+
+— Obrigada. E espero que vocês saibam no que estão se metendo.
+
+Brenna, que havia ficado em silêncio durante toda a conversa, finalmente falou.
+
+— Você é uma drow — disse, a voz carregando curiosidade. — Eu nunca conheci uma drow antes.
+
+Nymeris olhou para ela, e pela primeira vez, o sorriso dela se alargou um pouco.
+
+— E você é uma bárbara — respondeu. — Eu já conheci algumas. Mas nenhuma com um machado tão impressionante.
+
+Brenna riu, um som alto e contagiante.
+
+— Obrigada! Eu mesmo o escolhi. — Ergueu o machado, mostrando-o. — Duas pontas. Perfeito para quebrar cabeças.
+
+Nymeris riu também, um som suave e musical.
+
+— Posso imaginar.
+
+Edwin observou a interação entre as duas, sentindo algo estranho no peito. Havia uma química ali, algo que ele não conseguia nomear completamente. Mas não era o momento de pensar nisso.
+
+— Vamos embora daqui — disse, finalmente. — Antes que mais alguém apareça.
+
+Os quatro se dirigiram aos cavalos, mas foi então que perceberam: Nymeris não tinha cavalo. Ela havia chegado a pé, e não havia nenhum animal amarrado por perto.
+
+— Você não tem cavalo — Christian observou, a voz carregando preocupação.
+
+— Não — Nymeris respondeu, simplesmente. — Viajo a pé. Sempre viajei assim.
+
+Edwin hesitou. Eles não tinham cavalos extras, e comprar um naquela vila destruída seria impossível. Mas também não podiam deixá-la para trás, ou fazer com que ela caminhasse enquanto os outros montavam.
+
+Foi Brenna quem quebrou o silêncio, a voz um pouco mais alta do que o normal, como se estivesse tentando disfarçar algo.
+
+— Você pode… você pode montar comigo — disse, os olhos fixos em algum ponto distante, como se não quisesse olhar diretamente para Nymeris. — Meu cavalo é forte. Aguenta dois.
+
+Nymeris olhou para ela, os olhos prateados estudando o rosto da bárbara por um momento. Havia algo ali — curiosidade, talvez, ou surpresa.
+
+— Você tem certeza? — perguntou, a voz suave.
+
+— Claro — Brenna respondeu, um pouco rápido demais. — Sem problema. É… é só um cavalo. E você é… você não é pesada. Provavelmente.
+
+A última parte saiu como uma pergunta, e Edwin viu Christian esconder um sorriso. Ziralyth arqueou uma sobrancelha, os olhos passando entre Brenna e Nymeris com um brilho de diversão.
+
+Nymeris sorriu, um sorriso suave que parecia entender mais do que Brenna estava disposta a admitir.
+
+— Obrigada — disse, finalmente. — Se não for incômodo.
+
+— Não é — Brenna respondeu, quase cortando a frase. — Não é incômodo. É só… é só um cavalo.
+
+Ela repetiu a frase como se estivesse tentando se convencer, e Edwin não conseguiu evitar um sorriso. Havia algo genuinamente adorável naquela tentativa desajeitada de ser casual.
+
+Os cinco montaram — agora eram cinco, com Nymeris sentada atrás de Brenna, as mãos pousadas levemente na cintura da bárbara — e seguiram viagem, deixando a vila queimada para trás. 
+
+Brenna parecia um pouco rígida, como se estivesse tentando não se mover demais, e Nymeris mantinha uma distância respeitosa, mas havia algo ali — uma tensão que não era desconfortável, mas sim… expectante.
+
+Edwin observou a interação, sentindo algo estranho no peito. Havia uma química ali, algo que ele não conseguia nomear completamente. Mas não era o momento de pensar nisso.
+
+Mas algo havia mudado. Agora tinham um curandeiro. Agora tinham alguém que poderia mantê-los vivos quando as coisas ficassem difíceis.
+
+E Edwin sabia que, para o que estava por vir, isso seria fundamental.
+
 ---
 
 ## Rascunhos e Notas
