@@ -1943,7 +1943,7 @@ Edwin estudou o mapa por um longo momento, tentando memorizar cada detalhe. Havi
 
 — E Valerius? — perguntou, finalmente. — Como chegamos até ele?
 
-— As Montanhas de Kharagul ficam a três dias de viagem daqui — Gorim respondeu. — E a torre dele é difícil de encontrar. Mas se vocês seguirem as estrelas, vão chegar lá. — Fez uma pausa. — Só lembrem: ele não vende. Só troca. E vocês vão precisar de algo que ele considere valioso.
+— As Montanhas de Kharagul ficam a doze dias de viagem daqui — Gorim respondeu. — E a torre dele é difícil de encontrar. Mas se vocês seguirem as estrelas, vão chegar lá. — Fez uma pausa. — Só lembrem: ele não vende. Só troca. E vocês vão precisar de algo que ele considere valioso.
 
 Edwin pagou o anão, guardando o mapa com cuidado. Quando saíram da taverna, o sol já estava se pondo, e a cidade estava começando a se animar com a noite.
 
@@ -1970,8 +1970,6 @@ O grupo assentiu, e quando se recolheram para a noite, cada um carregava pensame
 E Edwin sabia que, para o que estava por vir, precisaria de toda a ajuda que pudesse conseguir.
 
 ### Capítulo 18 - wip
-*Christian começa a desconfiar de Edwin, especialmente após uma decisão moralmente duvidosa em combate.*
-
 O caminho até as Montanhas de Kharagul levou o grupo através de terras cada vez mais desoladas. A vegetação começou a rarear, dando lugar a rochas cinzentas e vales estreitos. O ar ficou mais frio, e as noites mais longas.
 
 Foi no terceiro dia de viagem que encontraram a aldeia.
@@ -2076,19 +2074,443 @@ Christian não respondeu, mas Edwin viu algo nos olhos dele que não estava lá 
 
 E sabia que, a partir daquele momento, as coisas nunca mais seriam as mesmas entre eles.
 
-### Capítulo 19
-*Ziralyth faz um comentário sarcástico que expõe as intenções ocultas de Edwin, mas ninguém dá ouvidos — exceto Christian.*
+### Capítulo 19 - wip
+
+A tensão que pairava no ar desde a aldeia não havia desaparecido. Christian mantinha distância de Edwin, e mesmo quando falavam, havia algo diferente — uma formalidade que não existia antes, uma hesitação que não estava lá antes.
+
+O grupo continuou a viagem em silêncio, cada um carregando seus próprios pensamentos. A paisagem ao redor começou a mudar, as montanhas ficando mais altas, mais imponentes, e o ar mais fino, mais difícil de respirar.
+
+Foi na terceira noite depois da aldeia que a conversa finalmente aconteceu.
+
+Estavam acampados em uma caverna natural, protegidos do vento frio que soprava das montanhas. A fogueira crepitava, lançando sombras dançantes sobre as paredes de pedra, e o grupo estava sentado ao redor dela, tentando se aquecer.
+
+Edwin estava estudando o mapa novamente, tentando encontrar algum detalhe que tivesse perdido antes. Ziralyth estava limpando suas adagas, um gesto ritualístico que parecia acalmá-la. Brenna estava afiando o machado, o som do metal contra a pedra ecoando na caverna. Nymeris estava sentada perto de Christian, os dois conversando em voz baixa sobre algo que Edwin não conseguia ouvir.
+
+Foi então que Ziralyth falou, sem olhar para ninguém, como se estivesse comentando o tempo.
+
+— É interessante — disse, a voz carregando um tom sarcástico que Edwin já conhecia bem. — Como algumas pessoas conseguem justificar qualquer coisa, desde que digam que é pelo bem maior.
+
+Edwin ergueu os olhos do mapa, sentindo algo estranho no peito.
+
+— O que você quer dizer? — perguntou.
+
+Ziralyth finalmente olhou para ele, os olhos azuis quase transparentes fixos no rosto dele.
+
+— Nada — respondeu, com um sorriso seco. — Apenas observando. É interessante como você sempre tem uma explicação, não é? Como você sempre consegue encontrar uma razão para fazer coisas que outras pessoas considerariam erradas. — Fez uma pausa. — Como matar alguém que confiava em você, por exemplo.
+
+O silêncio que se seguiu foi pesado. Brenna parou de afiar o machado. Nymeris e Christian pararam de conversar. Todos olharam para Ziralyth, e então para Edwin.
+
+— Eu não matei ninguém que confiava em mim — Edwin respondeu, a voz mais dura do que pretendia. — Matei um inimigo. Alguém que estava disposto a matar pessoas inocentes para me impedir.
+
+— Claro — Ziralyth concordou, mas o tom era claramente sarcástico. — E você fez isso pelo bem maior. Para salvar a criança. Para proteger as pessoas. — Fez uma pausa, estudando o rosto dele. — Mas não foi só isso, foi? Você também fez isso porque sabia que, se ele voltasse vivo, ia contar ao seu irmão o que você estava fazendo. E então seu irmão ia saber exatamente onde você estava, e o que você estava procurando.
+
+Edwin não respondeu, mas sentiu algo estranho no peito. Ziralyth estava certa. Ele havia matado o capitão não apenas para salvar a criança, mas também para garantir que William não descobrisse seus planos.
+
+— E você também fez isso porque gostou — Ziralyth continuou, a voz ainda mais baixa, mas carregando uma intensidade que fez todos prestarem atenção. — Gostou de ter o poder. Gostou de estar no controle. Gostou de saber que você podia decidir quem vive e quem morre.
+
+— Isso não é verdade — Edwin protestou, mas a voz soou fraca, mesmo para ele.
+
+— Não? — Ziralyth arqueou uma sobrancelha. — Então me diga, príncipe. Quando você olhou para os corpos naquela aldeia, o que você sentiu? Remorso? Tristeza? Ou você sentiu… satisfação? Porque você estava mais perto do seu objetivo? Porque você estava provando que era capaz de fazer o que fosse necessário?
+
+Edwin ficou em silêncio, porque não tinha resposta. E porque, no fundo, sabia que Ziralyth estava certa. Havia algo ali — algo que ele não queria admitir, mas que estava presente. Uma satisfação sutil em saber que estava no controle, que estava fazendo o que precisava ser feito.
+
+— Você está errada — disse, finalmente, mas a voz não tinha convicção.
+
+— Claro que estou — Ziralyth respondeu, com um sorriso seco. — E eu sou apenas uma ladra cínica que não entende nada sobre nobreza e honra. — Fez uma pausa. — Mas pelo menos eu não finjo que estou fazendo isso pelo bem maior. Eu sei exatamente o que sou. E você? Você sabe o que você é?
+
+O silêncio se estendeu, e então Brenna falou, a voz um pouco mais alta do que o normal, como se estivesse tentando quebrar a tensão.
+
+— Acho que todos estamos cansados — disse. — Talvez devêssemos descansar.
+
+Mas ninguém se moveu. E todos sabiam que algo havia mudado. Que Ziralyth havia exposto algo que ninguém queria ver — algo que todos sabiam, mas que ninguém queria admitir.
+
+Christian foi o único que não desviou o olhar. Ele ficou olhando para Edwin, os olhos verdes carregando algo que Edwin não conseguia identificar completamente. Mas sabia o que era. Era desconfiança. Era dúvida. Era o reconhecimento de que Ziralyth estava certa.
+
+E sabia que, a partir daquele momento, as coisas nunca mais seriam as mesmas.
+
+Ziralyth voltou a limpar as adagas, como se nada tivesse acontecido. Mas todos sabiam que algo havia mudado. Que ela havia plantado uma semente de dúvida que não ia desaparecer facilmente.
+
+E Edwin sabia que, para o que estava por vir, isso seria um problema. Um problema que ele não sabia como resolver.
+
+Mas também sabia que não podia parar. Não agora. Não depois de ter chegado tão longe.
+
+Mesmo que isso significasse perder as pessoas que mais importavam.
 
 ### Capítulo 20
 *Um sonho enviado por um deus dragão, alertando sobre o artefato (Nymeris vai receber essa visão).*
 
-### Capítulo 21
+A noite que se seguiu foi inquieta. A tensão do confronto com Ziralyth ainda pairava no ar, e mesmo quando todos se recolheram para dormir, havia algo pesado ali — algo que não permitia que ninguém descansasse completamente.
+
+Nymeris foi a última a adormecer. Ficou acordada por muito tempo, observando as chamas da fogueira, pensando nas palavras de Ziralyth, nas ações de Edwin, nas dúvidas que começavam a crescer em seu coração.
+
+Quando finalmente adormeceu, o sono não trouxe paz.
+
+Ela sonhou.
+
+Mas não era um sonho comum. Era algo mais — algo que parecia real, que parecia estar acontecendo em algum lugar além do mundo físico.
+
+Estava em um lugar que não conhecia. Um lugar de pedra negra e fogo, onde o ar cheirava a enxofre e a algo mais antigo, mais profundo. Nas paredes, havia runas que ela não conseguia ler, mas que pareciam pulsar com uma luz própria.
+
+E então viu a figura.
+
+Era um dragão. Mas não um dragão comum — era algo maior, algo mais antigo. Suas escamas eram negras como obsidiana, e seus olhos brilhavam com uma luz dourada que parecia ver através de tudo. Quando falou, a voz ecoou não apenas no ar, mas em sua mente, em sua alma.
+
+— Filha do crepúsculo — a voz disse, carregando algo que parecia quase… tristeza. — Você busca algo que não deveria ser encontrado.
+
+Nymeris tentou falar, mas as palavras não saíram. Apenas conseguiu pensar, e o dragão pareceu ouvir.
+
+— O Cálice — ele continuou. — O Cálice de Sangue Sem Fim. Você sabe o que ele é? O que ele faz?
+
+Ela não sabia, não completamente. Sabia apenas as lendas, as histórias que havia ouvido. Mas o dragão parecia ver através dela, ver o que ela realmente sabia.
+
+— Ele não é apenas um artefato — a voz continuou. — Ele é uma porta. Uma porta para algo que não deveria existir. Algo que os próprios deuses tentaram esquecer. — Fez uma pausa, e pela primeira vez, Nymeris viu algo nos olhos dourados que parecia quase… medo. — Se ele for usado, se o sangue for derramado, se o ritual for completado… tudo vai mudar. Não apenas este reino. Tudo.
+
+Nymeris sentiu algo estranho no peito — algo que não era medo, mas que se aproximava disso.
+
+— O que devo fazer? — pensou, e o dragão pareceu ouvir.
+
+— Você deve escolher — a voz respondeu. — Você pode tentar impedir. Pode tentar destruir o cálice antes que seja usado. Mas isso pode custar tudo. Pode custar a vida de todos que você ama. — Fez uma pausa. — Ou você pode deixar acontecer. Pode deixar que o destino siga seu curso. Mas isso também vai custar. Vai custar a alma de todos que você ama.
+
+Ela não entendia. Não completamente. Mas sabia que havia algo importante ali, algo que precisava ser lembrado.
+
+— Quem é você? — pensou.
+
+O dragão riu, um som que ecoou através de tudo.
+
+— Eu sou o que resta — respondeu. — O que resta de uma época antes dos deuses, antes dos homens, antes de tudo que você conhece. E eu vejo o que está por vir. Vejo a escuridão que se aproxima. — Fez uma pausa. — E vejo você, filha do crepúsculo. Vejo a escolha que você vai fazer. E vejo o preço que você vai pagar.
+
+E então, antes que ela pudesse pensar em mais alguma coisa, o dragão desapareceu, e o sonho começou a se desfazer.
+
+Mas as palavras permaneceram. As palavras e a sensação de que algo estava errado, de que algo estava prestes a acontecer.
+
+Nymeris acordou de repente, sentando-se na cama de rolos, o coração batendo acelerado. A respiração vinha em suspiros curtos, e o suor escorria pela testa.
+
+— Nymeris? — Christian perguntou, a voz carregando preocupação. Ele estava acordado, observando-a. — Você está bem?
+
+Ela não respondeu imediatamente, tentando processar o que havia visto, o que havia ouvido. O sonho ainda estava fresco em sua mente, as palavras do dragão ainda ecoando.
+
+— Eu tive um sonho — disse, finalmente, a voz trêmula. — Uma visão.
+
+Os outros começaram a acordar, e logo todos estavam olhando para ela, esperando.
+
+— O que você viu? — Edwin perguntou, a voz carregando algo que ela não conseguiu identificar.
+
+Nymeris hesitou, estudando o rosto dele. Havia algo ali — algo que ela não tinha visto antes. Algo que a fez hesitar antes de compartilhar o que havia visto.
+
+— Vi um dragão — disse, finalmente. — Um dragão antigo. Ele me falou sobre o cálice. Disse que ele é perigoso. Que ele não deveria ser usado. — Fez uma pausa. — Disse que, se for usado, tudo vai mudar. Não apenas este reino. Tudo.
+
+O silêncio que se seguiu foi pesado. Todos olharam para Edwin, esperando sua reação.
+
+— E o que mais ele disse? — Edwin perguntou, a voz neutra.
+
+Nymeris estudou o rosto dele por um momento, e então decidiu não contar tudo. Não contar sobre a escolha, sobre o preço, sobre o que ela realmente havia sentido.
+
+— Disse que devemos ter cuidado — respondeu, finalmente. — Que o cálice é mais perigoso do que pensamos.
+
+Edwin não respondeu, mas ela viu algo nos olhos dele que não estava lá antes. Algo que parecia quase… determinação. Como se a visão dela tivesse confirmado algo que ele já sabia.
+
+— Então vamos ter cuidado — disse, finalmente. — Mas vamos continuar. Não podemos parar agora.
+
+Nymeris assentiu, mas no fundo, sabia que havia mais. Sabia que havia algo que ela não estava contando, algo que talvez devesse contar, mas que não conseguia.
+
+E sabia que, para o que estava por vir, isso seria importante. Muito importante.
+
+Mas por enquanto, guardou aquele segredo, como guardava tantos outros, sabendo que um dia ela teria que enfrentar as consequências.
+
+Mas por enquanto, era o suficiente continuar. Era o suficiente seguir em frente.
+
+Mesmo que isso significasse carregar mais um peso nos ombros.
+
+### Capítulo 21 - wip
 *Cena onde Brenna e Nymeris salvam a party de uma emboscada. Fortalece os laços e revela o verdadeiro poder delas.*
+
+A viagem continuou por mais dois dias, a tensão da visão de Nymeris ainda pairando no ar como uma névoa pesada. O grupo estava mais silencioso do que o normal, cada um carregando seus próprios pensamentos, suas próprias dúvidas.
+
+Foi quando estavam atravessando um desfiladeiro estreito que a emboscada aconteceu.
+
+Eles não viram os atacantes chegando. Um momento estavam seguindo pela estrada, e no seguinte, pedras começaram a rolar das encostas, bloqueando o caminho à frente e atrás. E então, de ambos os lados, apareceram arqueiros — pelo menos vinte, todos com arcos apontados para o grupo.
+
+— Não se movam — um deles gritou, a voz ecoando pelas paredes de pedra. — Só queremos o príncipe. O resto pode ir embora.
+
+Edwin sentiu o estômago se contrair. Eram muitos. Demais para que conseguissem lutar e sair vivos. Mas também sabia que não podia simplesmente se render. Não agora.
+
+Foi então que algo estranho aconteceu.
+
+Nymeris, que havia ficado em silêncio durante toda a viagem, começou a sussurrar algo. As palavras eram em um idioma que Edwin não conhecia — palavras antigas, palavras que pareciam vir de um tempo antes dos homens, antes dos deuses. E havia algo nelas — algo que fazia o ar ao redor dela vibrar, que fazia a própria pedra das montanhas parecer responder.
+
+O cajado dela começou a brilhar com uma luz prateada, e então, de repente, uma névoa densa começou a se formar ao redor do grupo. Não era uma névoa comum — era algo mais, algo que parecia viver, que parecia se mover com vontade própria. A névoa se espalhou rapidamente, envolvendo tudo em um véu cinza-prateado que parecia pulsar com energia arcana.
+
+Os arqueiros começaram a atirar, mas as flechas se comportaram de forma estranha. Algumas simplesmente desapareciam na névoa, como se tivessem sido engolidas. Outras mudavam de direção no meio do voo, desviando-se do grupo como se uma mão invisível as estivesse empurrando. E algumas simplesmente caíam no chão, como se tivessem perdido toda a força.
+
+— O que está acontecendo? — Christian perguntou, a voz carregando surpresa, enquanto uma flecha passou a centímetros do seu rosto, desviando-se no último instante.
+
+— Nymeris — Ziralyth respondeu, os olhos fixos na drow, uma expressão de admiração no rosto. — Ela está usando magia. Magia do crepúsculo. A névoa não é só proteção — é uma extensão dela.
+
+Mas enquanto a névoa protegia o grupo, os atacantes ainda estavam lá. E eles estavam reagindo. Edwin podia ouvir vozes gritando ordens, e então uma voz mais alta, mais autoritária, cortou o ar:
+
+— Parem de atirar! As flechas são inúteis! — o líder gritou, a voz ecoando pelas paredes de pedra. — A névoa está desviando tudo! Avancem! Metade de vocês, atravessem a névoa e matem eles de perto! O resto fica aqui e corta a retirada!
+
+Edwin sentiu o estômago se contrair. Eles estavam se organizando. Estavam mudando de estratégia. E isso significava que a névoa, por mais poderosa que fosse, não ia ser suficiente.
+
+Podeu ouvir os passos pesados se aproximando, os gritos de guerra, o som de espadas sendo desembainhadas. E então, de repente, sombras começaram a aparecer na névoa — formas humanas se aproximando, tentando atravessar o véu prateado que os protegia.
+
+Alguns conseguiram atravessar, aparecendo como sombras na névoa, suas formas distorcidas e fantasmagóricas. Mas quando tentavam atacar, algo estranho acontecia — suas espadas cortavam o ar onde o grupo deveria estar, mas encontravam apenas névoa. A névoa estava criando ilusões, fazendo com que os atacantes vissem o grupo em lugares onde não estavam.
+
+Foi então que Brenna agiu.
+
+Com um grito de guerra que ecoou pelas montanhas como o rugido de uma fera, ela avançou, o machado de duas pontas girando em um arco devastador. Mas não foi apenas força — foi algo mais. Algo que Edwin não tinha visto antes. Quando ela se moveu, parecia que o próprio ar respondia, como se ancestrais invisíveis estivessem guiando cada golpe, cada movimento.
+
+Ela não precisava ver através da névoa. Parecia saber exatamente onde cada inimigo estava, como se estivesse conectada a algo maior, algo que a guiava. O machado cortou através da névoa como se ela não existisse, encontrando os atacantes que tentavam se aproximar.
+
+O primeiro homem que encontrou não teve chance. O machado cortou através da armadura como se fosse tecido, e o corpo caiu em dois pedaços antes que ele pudesse gritar. O segundo tentou bloquear, mas Brenna girou o machado, usando a segunda ponta para cravar na junta da armadura, no ponto onde o braço encontrava o peito. O homem caiu, surpreso, e Brenna já estava se movendo para o próximo.
+
+Mas não era apenas força bruta. Havia uma graça ali, uma precisão que não deveria ser possível com uma arma tão pesada. Ela se movia como uma dançarina, girando, desviando, contra-atacando, cada movimento fluido e letal. E quando os atacantes tentavam cercá-la, a névoa parecia se mover, criando aberturas, guiando-a para onde precisava estar.
+
+Nymeris, enquanto isso, continuava sussurrando, os olhos fechados, o cajado brilhando intensamente. A névoa se movia e respondia aos seus comandos, protegendo o grupo, desviando flechas, criando ilusões que confundiam os atacantes. Mas Edwin podia ver que ela estava se esforçando — o suor escorria pelo rosto, e a respiração estava ficando mais pesada. Manter aquela névoa, controlar aquela magia, estava custando caro.
+
+E então algo mudou. A névoa começou a se mover de forma diferente, começou a se concentrar em pontos específicos, criando formas que pareciam quase humanas — sombras que se moviam, que atacavam, que confundiam os inimigos. E Brenna, como se soubesse exatamente o que estava acontecendo, começou a trabalhar em conjunto com essas sombras, atacando onde as ilusões criavam aberturas, devastando onde a névoa revelava os inimigos.
+
+Foi uma dança. Uma dança mortal entre as duas — Brenna atacando, devastando, e Nymeris protegendo, guiando, como se estivessem conectadas de uma forma que ninguém conseguia entender completamente. Como se fossem duas partes de uma mesma coisa, duas metades de um todo.
+
+Os atacantes começaram a recuar. Alguns tentaram fugir, mas a névoa os confundia, fazendo com que corressem em círculos, perdidos. Outros continuaram lutando, mas estavam desorientados, atacando sombras, cortando ar, enquanto Brenna os abatia um por um.
+
+Quando a última flecha foi disparada e o último grito ecoou pelas montanhas, a batalha acabou. Todos os atacantes estavam mortos ou fugindo, perdidos na névoa que ainda se movia, como se estivesse viva. E o grupo estava intacto — ferido, mas vivo.
+
+A névoa começou a se dissipar, e Nymeris caiu de joelhos, ofegante, o suor escorrendo pelo rosto. O cajado ainda brilhava levemente, mas a luz estava diminuindo, como se a magia estivesse se esgotando. Ela estava exausta — manter aquela névoa, controlar aquela magia, havia drenado quase toda sua energia.
+
+Brenna se aproximou, o machado ainda nas mãos, a respiração pesada. O peito subia e descia em um ritmo acelerado, e o suor escorria pelos braços, misturando-se com o sangue dos inimigos. Mas quando parou diante de Nymeris, algo mudou na expressão dela — a fúria da batalha deu lugar a algo mais suave, mais preocupado.
+
+— Você está bem? — Brenna perguntou, a voz carregando preocupação, enquanto se ajoelhava na frente da drow.
+
+Nymeris ergueu os olhos, os olhos prateados encontrando os verdes da bárbara. E por um momento, algo passou entre elas — algo que não era apenas gratidão ou alívio. Algo mais profundo, mais intenso, algo que fez o coração de ambas acelerar de uma forma que não tinha nada a ver com a batalha.
+
+— Estou — Nymeris respondeu, a voz trêmula, enquanto tentava se levantar, mas as pernas não obedeciam. — Apenas… cansada.
+
+Brenna estendeu a mão, e quando Nymeris a pegou, houve um choque — não físico, mas algo mais, algo que fez ambas hesitarem por um instante. A mão de Brenna era grande, calejada, forte, mas o toque foi suave, quase reverente. E a mão de Nymeris era pequena, delicada, mas firme, como se estivesse segurando algo precioso.
+
+Brenna ajudou Nymeris a se levantar, mas não soltou a mão dela imediatamente. E Nymeris não tentou puxar. Ficaram ali, de pé, muito próximas, a respiração ofegante de ambas se misturando no ar entre elas.
+
+A distância entre elas era mínima — tão mínima que Brenna podia sentir o calor do corpo de Nymeris, podia ver cada gota de suor escorrendo pelo pescoço dela, podia ver o pulso acelerado na base da garganta. E Nymeris podia sentir a mesma coisa — o calor emanando do corpo grande e musculoso da bárbara, o cheiro de suor e sangue e algo mais, algo que era apenas dela, o som da respiração pesada que parecia sincronizar com a dela.
+
+— Você salvou todos nós — Brenna disse, a voz mais baixa do que pretendia, quase um sussurro. — O que você fez… eu nunca vi nada assim.
+
+— Nós salvamos — Nymeris corrigiu, mas não desviou o olhar. Os olhos prateados estavam fixos nos verdes da bárbara, e havia algo ali — algo que ela não conseguia nomear, mas que fazia o estômago se contrair de uma forma estranha. — Você e eu. Juntas. — A voz saiu mais rouca do que pretendia, e ela sentiu o rosto esquentar.
+
+Brenna não respondeu, apenas ficou olhando. E Nymeris também. E por um momento, parecia que o mundo inteiro havia desaparecido — que não havia mais batalha, não havia mais grupo, não havia mais nada além delas duas, naquela proximidade, naquela tensão que não conseguiam nomear mas que ambas sentiam.
+
+Brenna moveu a mão livre — a que não estava segurando a de Nymeris — e por um instante, parecia que ia tocar o rosto dela. Mas então hesitou, os dedos parando a poucos centímetros da pele sombria, como se estivesse com medo de quebrar o momento.
+
+Nymeris sentiu algo estranho no peito — uma mistura de esperança e medo, de desejo e hesitação. Queria que Brenna tocasse. Queria sentir aquela mão grande e calejada no rosto dela. Mas também tinha medo. Medo do que isso significaria. Medo do que aconteceria depois.
+
+— Você está tremendo — Brenna observou, a voz ainda baixa, os olhos fixos nos dela.
+
+— Estou? — Nymeris perguntou, mas sabia que estava. Não era apenas o cansaço da magia. Era algo mais. Algo que tinha a ver com a proximidade, com o calor, com a forma como o corpo de Brenna parecia se curvar levemente em direção ao dela, como se estivesse sendo puxado por uma força invisível.
+
+— Está — Brenna confirmou, e então, finalmente, tocou. Não o rosto, mas o braço — um toque suave, quase hesitante, como se estivesse testando. — Você está fria.
+
+— A magia… — Nymeris começou, mas a voz falhou quando sentiu o calor da mão de Brenna através da túnica. — A magia tira muito de mim.
+
+Brenna não respondeu, mas moveu a mão, passando-a pelo braço de Nymeris em um movimento que poderia ter sido apenas para aquecê-la, mas que sentiu como algo mais. Algo íntimo. Algo que fez Nymeris prender a respiração.
+
+— Você precisa descansar — Brenna disse, finalmente, mas não se afastou. Ainda estava muito próxima, ainda segurando a mão de Nymeris, ainda com a outra mão no braço dela.
+
+— Sim — Nymeris concordou, mas não fez movimento para se afastar. — Mas primeiro… primeiro preciso me certificar de que todos estão bem.
+
+Brenna finalmente soltou a mão dela, mas o toque deixou uma marca — uma sensação de calor que persistiu mesmo depois que se separaram. E quando Nymeris olhou para os olhos verdes da bárbara, viu algo que não estava lá antes. Algo que parecia quase… desejo.
+
+Ziralyth, que havia ficado observando a interação em silêncio, deu uma risadinha abafada — um "pf" quase inaudível, mas que fez ambas se virarem para olhar para ela. A tiefling estava com um sorriso irônico no rosto, os olhos azuis brilhando com diversão, mas não disse nada. Apenas arqueou uma sobrancelha, como se estivesse comentando mentalmente sobre algo que só ela entendia.
+
+Brenna corou levemente, e Nymeris sentiu o rosto esquentar também. Ambas sabiam que Ziralyth havia percebido. Ambas sabiam que ela havia visto exatamente o que estava acontecendo entre elas.
+
+Mas então Christian falou, quebrando o momento.
+
+— Vocês duas foram incríveis — disse, a voz carregando admiração. — Eu nunca vi nada assim.
+
+Brenna finalmente se afastou, mas não antes de lançar um último olhar para Nymeris — um olhar que dizia que aquela conversa não tinha acabado, que havia algo mais ali, algo que ambas sabiam mas que nenhuma estava pronta para nomear.
+
+— Obrigada — Nymeris sussurrou, a voz quase inaudível, mas Brenna ouviu. E o sorriso que apareceu no rosto da bárbara — um sorriso pequeno, quase tímido — fez o coração de Nymeris acelerar de uma forma que ela não conseguia explicar.
+
+— De nada — Brenna respondeu, mas a voz estava um pouco mais rouca do que o normal, e havia algo nos olhos dela que Nymeris não conseguia identificar completamente. Mas sabia o que era. Era a mesma coisa que ela estava sentindo. Era desejo. Era atração. Era algo que não deveria estar ali, mas que estava.
+
+E ambas sabiam que, a partir daquele momento, as coisas nunca mais seriam as mesmas entre elas.
+
+Edwin observou a interação, sentindo algo estranho no peito. Havia algo ali — algo que ele não conseguia nomear completamente, mas que sabia que era importante. Algo que mudaria tudo.
+
+Mas também sabia que não era o momento de pensar nisso. Havia feridos para cuidar, e um caminho a seguir.
+
+— Vamos embora daqui — disse, finalmente. — Antes que mais alguém apareça.
+
+O grupo assentiu, e quando se recolheram para continuar a viagem, havia algo diferente no ar. Algo que não estava lá antes.
+
+E Edwin sabia que, para o que estava por vir, isso seria importante. Muito importante.
 
 ### Capítulo 22
 *Um NPC morre (talvez alguém próximo de Christian ou Ziralyth) em consequência de uma decisão impulsiva ou manipulativa de Edwin.*
 
+A vila de Thornebrook era pequena, mas acolhedora. Ficava no caminho para as montanhas Kharagul, e o grupo havia decidido parar ali para descansar e reabastecer antes de continuar a jornada.
+
+Foi Christian quem sugeriu a parada. Ele conhecia a vila — havia passado por ali anos antes, durante uma missão do mosteiro. E havia alguém que ele queria ver novamente: um velho monge chamado Ivor, que havia se aposentado do mosteiro e se estabelecido na vila para ajudar os necessitados.
+
+— Ele me ensinou muito — Christian explicou, enquanto o grupo se aproximava da vila. — Foi ele quem me mostrou que a compaixão não precisa vir apenas dos deuses, mas também do coração. Eu queria… queria que vocês o conhecessem.
+
+Edwin não disse nada, mas Ziralyth lançou um olhar para ele, como se soubesse que ele estava pensando em algo. E estava. Thornebrook ficava no caminho, sim, mas também era um lugar conhecido por ser um ponto de encontro para mercenários e espiões. E Edwin sabia que William tinha olhos em todos os lugares.
+
+Mas não disse nada. Deixou Christian guiar o grupo até a vila, deixou ele encontrar o velho monge, deixou ele apresentar o grupo.
+
+Ivor era um homem velho, mas ainda tinha uma presença forte. Os olhos eram gentis, mas havia algo neles — uma sabedoria que vinha de anos de serviço, de anos de ver o melhor e o pior da humanidade. Quando viu Christian, o rosto se iluminou.
+
+— Christian — disse, abraçando o meio-elfo. — Há quanto tempo. Você cresceu.
+
+— E você não mudou nada — Christian respondeu, rindo. — Ainda ajudando todos que precisa.
+
+— É o que fazemos — Ivor respondeu, com um sorriso. — Ou pelo menos, é o que deveríamos fazer.
+
+Ele convidou o grupo para ficar na pequena casa que havia construído na vila, e todos aceitaram. Foi uma noite agradável — Ivor contou histórias, serviu comida simples mas saborosa, e por um momento, parecia que o grupo poderia esquecer tudo — a jornada, o cálice, a batalha pelo trono.
+
+Mas então, na manhã seguinte, tudo mudou.
+
+Edwin acordou cedo e saiu para dar uma volta pela vila. E foi então que viu — mercenários. Pelo menos vinte, todos com as cores de William, todos armados, todos se aproximando da vila.
+
+Ele voltou correndo para a casa de Ivor, acordando o grupo.
+
+— Temos que ir — disse, a voz urgente. — Agora.
+
+— O que está acontecendo? — Christian perguntou, ainda sonolento.
+
+— Mercenários de William — Edwin respondeu. — Eles estão vindo para cá. Precisamos sair antes que nos encontrem.
+
+— E a vila? — Ivor perguntou, a voz carregando preocupação. — E as pessoas? Eles vão fazer o quê?
+
+— Não sabemos — Edwin respondeu, mas havia algo na voz dele que não era completamente honesto. — Mas não podemos ficar aqui. Se eles nos encontrarem, vão matar todos que estiverem por perto.
+
+Christian hesitou, olhando para Ivor, depois para Edwin.
+
+— Podemos ajudar — disse, finalmente. — Podemos proteger a vila.
+
+— Não — Edwin respondeu, a voz firme. — Não podemos. São muitos, e se ficarmos aqui, vamos morrer. E se morrermos, tudo que estamos fazendo será em vão. — Fez uma pausa, olhando para Christian. — Você entende, não é? Precisamos continuar. Precisamos chegar ao cálice. É mais importante do que uma vila.
+
+Ivor olhou para Edwin, e havia algo nos olhos do velho monge — algo que parecia quase… tristeza. Como se soubesse o que Edwin estava realmente dizendo.
+
+— Ele está certo — Ivor disse, finalmente, a voz baixa. — Vocês precisam ir. Eu vou ficar aqui. Vou ajudar a vila a se esconder, a se proteger.
+
+— Não — Christian protestou. — Você pode vir conosco. Podemos protegê-lo.
+
+— Não, Christian — Ivor respondeu, com um sorriso triste. — Minha vida está aqui. Minhas pessoas estão aqui. Eu não posso abandoná-las.
+
+Edwin não disse nada, mas havia algo nos olhos dele — algo que parecia quase… satisfação. Como se tivesse conseguido o que queria.
+
+O grupo saiu da vila rapidamente, escondendo-se nas colinas ao redor. E então, de longe, viram os mercenários chegarem. Viram eles entrarem na vila, viram eles começarem a procurar.
+
+E então viram o fogo.
+
+A vila começou a queimar. Os mercenários estavam queimando tudo, procurando por informações, procurando por qualquer um que pudesse saber onde o grupo estava.
+
+Christian gritou, tentando correr de volta, mas Edwin o segurou.
+
+— Não — disse, a voz dura. — Não podemos. Se voltarmos, vamos morrer. E tudo será em vão.
+
+— Mas Ivor — Christian protestou, a voz quebrada. — Ele está lá. Ele vai morrer.
+
+— Ele escolheu ficar — Edwin respondeu, mas havia algo na voz dele que não era completamente honesto. — Ele escolheu proteger a vila. É o que ele queria.
+
+Mas Christian sabia. Sabia que não era verdade. Sabia que Edwin havia manipulado a situação, havia criado uma escolha falsa, havia forçado Ivor a ficar para trás porque sabia que, se o grupo ficasse, seria morto. E sabia que Edwin não se importava com Ivor. Não se importava com a vila. Só se importava com a missão.
+
+E então, de longe, viram Ivor. O velho monge saiu de uma das casas, tentando ajudar as pessoas a fugir, tentando protegê-las. E então um dos mercenários o viu, e atirou.
+
+Ivor caiu.
+
+Christian gritou novamente, tentando se soltar, mas Edwin o segurou com mais força.
+
+— Não — repetiu. — Não podemos. É tarde demais.
+
+E era. Ivor estava morto. A vila estava queimando. E o grupo estava escondido, seguro, mas carregando o peso de saber que poderiam ter feito algo diferente.
+
+Mas Edwin não parecia carregar esse peso. Parecia… satisfeito. Como se tivesse feito a escolha certa. Como se tivesse sacrificado uma vida para salvar muitas outras.
+
+Mas Christian sabia a verdade. Sabia que Edwin não havia sacrificado Ivor pelo bem maior. Havia sacrificado Ivor porque era conveniente. Porque era mais fácil. Porque Ivor era apenas um velho monge, e a missão era mais importante.
+
+E sabia que, a partir daquele momento, nunca mais conseguiria ver Edwin da mesma forma.
+
+Ziralyth observou tudo em silêncio, os olhos fixos em Edwin, como se estivesse vendo algo que sempre soube que estava lá, mas que agora estava completamente exposto.
+
+E quando o grupo finalmente se afastou da vila, deixando o fumo e as chamas para trás, havia algo diferente no ar. Algo pesado. Algo que não ia desaparecer facilmente.
+
+Christian não falou com Edwin pelo resto do dia. E Edwin não tentou falar com ele. Ambos sabiam o que havia acontecido. Ambos sabiam que algo havia mudado.
+
+E sabiam que, para o que estava por vir, isso seria importante. Muito importante.
+
 ### Capítulo 23
+*O grupo chega às Montanhas de Kharagul e encontra Valerius para conseguir a segunda metade do mapa.*
+
+A viagem até as Montanhas de Kharagul foi longa e difícil. Doze dias de estrada, atravessando terras cada vez mais selvagens, cada vez mais distantes da civilização. O silêncio que havia se instalado entre Christian e Edwin desde a morte de Ivor persistia, criando uma tensão que todos sentiam, mas ninguém comentava.
+
+As montanhas apareceram no horizonte no décimo dia — picos nevados que se erguiam como dentes contra o céu. Eram imponentes, ameaçadoras, e Edwin sentiu algo estranho ao olhá-las. Como se estivessem vivas, como se estivessem observando.
+
+— É ali — Ziralyth disse, apontando para um pico específico, mais alto que os outros. — A torre de Valerius fica naquele pico. Mas é difícil de encontrar. Gorim disse para seguir as estrelas.
+
+— E o que isso significa? — Brenna perguntou, os olhos fixos nas montanhas.
+
+— Significa que precisamos esperar a noite — Nymeris respondeu, a voz carregando algo que parecia quase… reverência. — A torre só aparece quando as estrelas estão certas. É magia antiga. Muito antiga.
+
+Edwin não disse nada, mas sentiu algo no peito — uma mistura de ansiedade e determinação. Eles estavam perto. Muito perto. E sabia que, quando encontrassem Valerius, precisariam de algo valioso para trocar. Algo que o colecionador considerasse digno da segunda metade do mapa.
+
+Mas o que? O que eles tinham que poderia interessar a um colecionador de artefatos antigos?
+
+O grupo acampou na base das montanhas, esperando a noite cair. E quando finalmente escureceu, algo estranho aconteceu.
+
+As estrelas começaram a se alinhar de uma forma que não era natural. Formaram padrões, linhas que pareciam apontar para um lugar específico na montanha. E então, de repente, onde antes havia apenas rocha, apareceu uma torre.
+
+Era uma estrutura antiga, feita de pedra negra que parecia absorver a luz. Não havia janelas, apenas uma porta alta e estreita. E ao redor, havia algo — uma sensação de poder, de magia antiga, de algo que não pertencia ao mundo comum.
+
+— É ali — Edwin disse, a voz baixa. — Vamos.
+
+O grupo começou a subir a montanha, seguindo um caminho estreito que parecia ter sido esculpido na própria pedra. O caminho era perigoso, cheio de pedras soltas e precipícios, mas todos continuaram, determinados.
+
+Quando finalmente chegaram à torre, a porta estava aberta. E dentro, havia luz — uma luz estranha, que parecia vir de lugar nenhum, iluminando um interior que era muito maior do que deveria ser possível.
+
+— Entrem — uma voz disse, vinda de dentro. Era uma voz antiga, carregada de poder, mas também de algo mais — algo que parecia quase… tédio. — Eu estava esperando vocês.
+
+Edwin entrou primeiro, seguido pelos outros. O interior da torre era uma confusão organizada — prateleiras cheias de artefatos, livros empilhados até o teto, objetos estranhos que brilhavam com luz própria. E no centro de tudo, sentado em uma cadeira alta, estava Valerius.
+
+Ele era um homem velho, mas não parecia frágil. Os olhos eram agudos, inteligentes, e havia algo neles que fazia Edwin se sentir nu, como se o colecionador pudesse ver através de todas as máscaras, de todas as mentiras.
+
+— Então vocês são os que procuram o mapa — Valerius disse, sem se levantar. — Gorim me avisou que vocês viriam. — Fez uma pausa, estudando cada um do grupo. — E vocês têm algo para trocar?
+
+Edwin hesitou, olhando para os outros. O que eles tinham? O que poderia interessar a um homem que aparentemente tinha tudo?
+
+— O que você quer? — perguntou, finalmente.
+
+Valerius riu, um som seco e sem humor.
+
+— O que eu quero? — repetiu. — Eu quero algo que vocês provavelmente não estão dispostos a dar. — Fez uma pausa, os olhos fixos em Edwin. — Eu quero uma promessa. Uma promessa de que, quando vocês encontrarem o cálice, vocês vão me trazer algo dele. Um fragmento. Uma gota de sangue. Algo que prove que vocês realmente o encontraram.
+
+Edwin sentiu algo estranho no peito. Valerius queria algo do cálice. Mas por quê? O que ele faria com isso?
+
+— E se não trouxermos? — Christian perguntou, a voz carregando desconfiança.
+
+— Então vocês não vão conseguir a segunda metade do mapa — Valerius respondeu, simplesmente. — E sem o mapa completo, vocês nunca vão encontrar o cálice. — Fez uma pausa. — É simples assim.
+
+Edwin estudou o rosto do colecionador por um momento, calculando. Era um risco. Mas também era a única opção. E sabia que, se não conseguissem o mapa, tudo seria em vão.
+
+— Aceito — disse, finalmente. — Quando encontrarmos o cálice, vamos trazer algo para você.
+
+Valerius sorriu, um sorriso que não chegava aos olhos.
+
+— Então está feito — disse, levantando-se e caminhando até uma das prateleiras. Pegou um pergaminho antigo, idêntico ao que Gorim havia dado ao grupo. — Aqui está. A segunda metade do mapa. — Estendeu o pergaminho para Edwin. — E lembrem-se da promessa. Eu não esqueço promessas.
+
+Edwin pegou o pergaminho, sentindo o peso dele nas mãos. Era real. Era a segunda metade. Agora eles tinham o mapa completo.
+
+— Obrigado — disse, guardando o pergaminho com cuidado.
+
+— Não me agradeça ainda — Valerius respondeu, voltando para a cadeira. — Vocês ainda têm um longo caminho pela frente. E o cálice… o cálice não é o que vocês pensam que é. — Fez uma pausa. — Mas isso é algo que vocês vão descobrir por si mesmos.
+
+O grupo saiu da torre, e quando olharam para trás, ela já havia desaparecido, como se nunca tivesse existido. Mas o mapa estava lá, real, nas mãos de Edwin.
+
+E quando juntaram as duas metades, finalmente viram o caminho completo. O caminho até Drakestone. O caminho até o cálice.
+
+E sabiam que, a partir daquele momento, não havia mais volta.
+
+### Capítulo 24
 *Chegada ao local da última fase do torneio, onde o artefato está escondido.*
 
 ### Capítulo 24
