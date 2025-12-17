@@ -1870,7 +1870,104 @@ E guardou aquele segredo, como guardava tantos outros, sabendo que um dia ele te
 Mesmo que isso significasse carregar mais um peso nos ombros.
 
 ### Capítulo 17
-*A party descobre o paradeiro de um artefato menor ou mapa que revela a localização do artefato principal.*
+
+Três dias depois do encontro com o emissário, o grupo chegou a uma cidade pequena chamada Dun Karaz — um lugar que Ziralyth conhecia bem. Era uma cidade fortificada, rota obrigatória entre os reinos humanos e anões, conhecida por suas tavernas perigosas e mercados de mercenários, onde acordos de sangue eram selados.
+
+A cidade era um labirinto de ruas estreitas, casas de pedra cinzenta, e o cheiro constante de metal forjado e cerveja barata. Mercadores de todas as raças se misturavam nas ruas, e guardas com armaduras pesadas patrulhavam as muralhas, sempre alertas para qualquer sinal de problema.
+
+Edwin sentiu-se estranhamente à vontade ali. Era um lugar onde títulos significavam pouco, onde o ouro falava mais alto que a linhagem. Um lugar onde ele podia ser apenas mais um viajante, sem o peso do sobrenome.
+
+Ziralyth os levou até uma taverna chamada O Martelo Quebrado — um lugar escuro e barulhento, cheio de mercenários, contrabandistas e pessoas que preferiam não fazer perguntas sobre o passado de ninguém.
+
+— Conheço alguém aqui — ela disse, enquanto se dirigiam para um canto escuro da taverna. — Alguém que pode ter informações sobre o que estamos procurando.
+
+Sentaram-se em uma mesa longe das janelas, e Ziralyth sinalizou para um homem que estava no balcão — um anão de barba grisalha e olhos que pareciam ter visto demais. O anão se aproximou, sentando-se na mesa sem ser convidado.
+
+— Ziralyth — disse, a voz grave carregando um sotaque anão. — Faz tempo. Pensava que você tinha morrido.
+
+— Ainda não — ela respondeu, com um sorriso seco. — E você, Gorim? Ainda vendendo informações?
+
+— Vendo o que paga bem — Gorim respondeu, os olhos passando por cada um do grupo. — E vocês parecem ter ouro. — Fez uma pausa. — O que querem?
+
+— Informações — Edwin respondeu, antes que Ziralyth pudesse falar. — Sobre um artefato. Um cálice.
+
+Gorim estudou o rosto dele por um momento, e então riu, um som rouco.
+
+— O Cálice de Sangue Sem Fim — disse, como se estivesse testando as palavras. — Vocês estão procurando a lenda. — Fez uma pausa. — E vocês sabem o que acontece com quem procura lendas?
+
+— Eles encontram — Ziralyth respondeu, a voz neutra. — Ou morrem tentando.
+
+Gorim riu novamente, mas desta vez havia algo diferente no som — algo que parecia quase respeitoso.
+
+— Justo — disse. — Eu tenho informações. Mas não sobre o cálice em si. Sobre algo que pode levar vocês até ele.
+
+Edwin sentiu o coração acelerar.
+
+— O que?
+
+— Um mapa — Gorim respondeu. — Ou melhor, metade de um mapa. Dizem que foi feito por um dos sete lordes de Drakestone, antes que a cidade caísse. Mostra o caminho até as ruínas. — Fez uma pausa. — Mas é só metade. A outra metade… a outra metade está com alguém que vocês provavelmente não vão querer encontrar.
+
+— Quem? — Christian perguntou, a voz carregando preocupação.
+
+— Um colecionador — Gorim respondeu. — Um homem chamado Valerius. Ele mora numa torre nas Montanhas de Kharagul. E ele não vende. Só troca. — Olhou para Edwin. — E ele tem um gosto muito específico para o que considera valioso.
+
+Edwin estudou o rosto do anão por um momento, calculando.
+
+— E você tem a primeira metade do mapa? — perguntou.
+
+— Tenho — Gorim confirmou. — Mas não vou dar de graça. Informações valem ouro, e essa informação vale muito ouro.
+
+— Quanto? — Edwin perguntou, sem hesitar.
+
+Gorim nomeou um preço que fez até mesmo Ziralyth arregalar os olhos.
+
+— Isso é roubo — ela protestou.
+
+— É o preço — Gorim respondeu, sem se importar. — Vocês querem ou não?
+
+Edwin hesitou por um momento, mas sabia que não tinha escolha. Precisava daquele mapa. Precisava de qualquer informação que pudesse levá-lo até o cálice.
+
+— Tudo bem — disse, finalmente. — Mas quero ver o mapa primeiro.
+
+Gorim assentiu, levantando-se e saindo da taverna. Quando voltou, alguns minutos depois, trazia consigo um pergaminho antigo, amarrado com uma fita de couro.
+
+Desenrolou o mapa sobre a mesa, e todos se inclinaram para ver. Era um desenho complexo, com linhas que pareciam representar montanhas, vales, e rotas. Havia símbolos antigos escritos nas margens, e no centro, uma marca que parecia representar as ruínas de Drakestone.
+
+Mas era claramente apenas metade. A outra metade estava faltando, cortada de forma que as rotas não faziam sentido completo.
+
+— Como sabemos que isso é real? — Ziralyth perguntou, os olhos fixos no mapa.
+
+— Não sabem — Gorim respondeu, honestamente. — Mas é a melhor informação que vocês vão conseguir. E, se for real, vale muito mais do que estou cobrando.
+
+Edwin estudou o mapa por um longo momento, tentando memorizar cada detalhe. Havia algo ali — algo que parecia familiar, algo que ele não conseguia identificar completamente.
+
+— E Valerius? — perguntou, finalmente. — Como chegamos até ele?
+
+— As Montanhas de Kharagul ficam a três dias de viagem daqui — Gorim respondeu. — E a torre dele é difícil de encontrar. Mas se vocês seguirem as estrelas, vão chegar lá. — Fez uma pausa. — Só lembrem: ele não vende. Só troca. E vocês vão precisar de algo que ele considere valioso.
+
+Edwin pagou o anão, guardando o mapa com cuidado. Quando saíram da taverna, o sol já estava se pondo, e a cidade estava começando a se animar com a noite.
+
+— Então temos metade de um mapa — Christian comentou, a voz carregando uma mistura de esperança e preocupação. — E precisamos da outra metade.
+
+— E precisamos encontrar alguém que não quer vender — Ziralyth completou. — Isso vai ser interessante.
+
+Brenna riu, o som alto e contagiante.
+
+— Pelo menos agora sabemos para onde ir — disse. — E isso é melhor do que andar sem rumo.
+
+Nymeris ficou em silêncio, mas os olhos prateados pareciam distantes, como se estivesse pensando em algo.
+
+— Há algo errado? — Christian perguntou, notando a expressão dela.
+
+— Não — Nymeris respondeu, mas hesitou antes de continuar. — Apenas… tenho um pressentimento. Como se estivéssemos nos aproximando de algo perigoso. Algo que não deveria ser perturbado.
+
+Edwin estudou o rosto dela por um momento, sentindo algo estranho no peito. Nymeris tinha uma conexão com o divino que os outros não tinham. E se ela sentia que algo estava errado, provavelmente estava certa.
+
+— Vamos com cuidado — disse, finalmente. — Mas vamos. Não podemos parar agora.
+
+O grupo assentiu, e quando se recolheram para a noite, cada um carregava pensamentos diferentes. Mas todos compartilhavam uma coisa: a certeza de que estavam se aproximando de algo grande. Algo que mudaria tudo.
+
+E Edwin sabia que, para o que estava por vir, precisaria de toda a ajuda que pudesse conseguir.
 
 ### Capítulo 18
 *Christian começa a desconfiar de Edwin, especialmente após uma decisão moralmente duvidosa em combate.*
