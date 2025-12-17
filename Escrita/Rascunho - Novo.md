@@ -1777,7 +1777,97 @@ A noite continuou, com mais histórias sendo compartilhadas — algumas tristes,
 E Edwin sabia que, para o que estava por vir, essas conexões seriam fundamentais.
 
 ### Capítulo 16
-*Um emissário do primeiro filho tenta subornar ou sabotar Edwin. Ele recusa, mas guarda isso em segredo.*
+A manhã seguinte trouxe uma névoa densa que cobria a floresta como um véu úmido. O grupo se levantou cedo, apagando a fogueira e preparando os cavalos para mais um dia de viagem. A conversa da noite anterior ainda pairava no ar — uma conexão mais profunda entre Christian e Nymeris, uma compreensão que não precisava de palavras.
+
+Edwin observou os dois conversando em voz baixa enquanto arrumavam os suprimentos, e sentiu algo estranho no peito. Não era ciúme — não exatamente. Era mais uma sensação de que estava perdendo algo, de que havia laços se formando que ele não conseguia entender completamente.
+
+Mas não era o momento de pensar nisso. Tinham uma missão. Tinham um objetivo. E precisavam continuar.
+
+Ziralyth liderava novamente, conhecendo as rotas melhor que qualquer um. Mas quando pararam em uma encruzilhada, ela hesitou, os olhos fixos em algo ao longe.
+
+— Há alguém na estrada — disse, a voz baixa. — Esperando.
+
+Edwin seguiu o olhar dela e viu uma figura solitária a cavalo, parada no meio da estrada, como se estivesse esperando por eles. O homem vestia roupas finas, mas práticas — não era um mercenário, mas também não era um camponês. Havia algo de oficial na postura dele, algo que dizia que ele estava ali por um motivo específico.
+
+— Vamos ver o que ele quer — Edwin decidiu, mas manteve a mão próxima da espada.
+
+Quando se aproximaram, o homem desmontou, inclinando a cabeça em uma saudação formal.
+
+— Lord Edwin Wyrmgarde — disse, a voz carregando um sotaque que Edwin reconheceu — o sotaque da corte, do castelo. — Meu nome é Marcus Thorne. Sou um emissário de seu irmão, o príncipe William.
+
+Edwin sentiu o estômago se contrair. Um emissário de William. Isso não era bom.
+
+— E o que meu irmão quer comigo? — perguntou, mantendo a voz neutra.
+
+Marcus estudou o grupo por um momento, os olhos passando por cada um deles antes de voltar para Edwin.
+
+— Ele gostaria de ter uma conversa privada — respondeu. — Se você pudesse me acompanhar por alguns momentos…
+
+Edwin hesitou, mas sabia que recusar seria pior. Se William estava enviando um emissário, era porque queria algo. E era melhor descobrir o que era.
+
+— Tudo bem — disse, desmontando. — Mas não vamos longe.
+
+Marcus assentiu, e os dois se afastaram do grupo, caminhando alguns passos na direção da floresta, mas mantendo-se à vista dos outros.
+
+— Seu irmão está preocupado — Marcus começou, a voz baixa. — Preocupado com essa campanha. Preocupado com o que pode acontecer se ela continuar.
+
+— E o que ele quer que eu faça sobre isso? — Edwin perguntou, já sabendo a resposta.
+
+— Ele quer que você desista — Marcus respondeu, sem hesitar. — E está disposto a fazer uma oferta generosa para garantir isso.
+
+Edwin riu, um som seco que não tinha humor.
+
+— Que tipo de oferta?
+
+— Uma propriedade — Marcus explicou. — Uma terra rica, longe da capital. Você teria autonomia completa, recursos suficientes para viver confortavelmente pelo resto da vida. E… — fez uma pausa — ele está disposto a garantir que você não precise servir ao clero. Que você possa viver sua vida como quiser, sem as restrições que normalmente se aplicam a segundos filhos.
+
+Era uma oferta tentadora. Muito tentadora. Uma forma de ter tudo que sempre quisera — liberdade, autonomia, uma vida sem as restrições do castelo — sem ter que lutar por isso. Sem ter que arriscar tudo.
+
+Mas também era uma oferta que vinha com um preço. O preço de desistir. O preço de admitir que William estava certo, que ele era o herdeiro legítimo, que Edwin não tinha direito de desafiar.
+
+— E se eu recusar? — perguntou, finalmente.
+
+Marcus estudou o rosto dele por um momento, e pela primeira vez, Edwin viu algo diferente na expressão dele — algo que parecia quase… pena.
+
+— Se você recusar — disse, a voz mais baixa — seu irmão não vai mais tentar negociar. Ele vai fazer o que for necessário para garantir que você não chegue ao artefato. E isso pode incluir coisas que você não vai gostar.
+
+Era uma ameaça. Clara, direta, sem rodeios. E Edwin sabia que William não estava brincando.
+
+— Entendi — respondeu, mantendo a voz neutra. — E você pode dizer ao meu irmão que eu agradeço a oferta, mas que vou recusar. Não estou interessado em propriedades ou em autonomia comprada. Estou interessado em ganhar o que é meu por direito.
+
+Marcus assentiu, como se já esperasse aquela resposta.
+
+— Eu vou transmitir sua mensagem — disse. — Mas saiba que, a partir de agora, as coisas vão ficar mais difíceis. Seu irmão não vai mais tentar ser gentil.
+
+— Ele nunca foi gentil — Edwin respondeu. — Apenas paciente.
+
+Marcus não respondeu, apenas inclinou a cabeça novamente e se afastou, montando no cavalo e partindo na direção de onde havia vindo.
+
+Edwin ficou parado por um momento, processando a conversa. A oferta era tentadora — mais tentadora do que ele gostaria de admitir. Mas também sabia que aceitar significaria desistir de tudo que havia começado. Significaria admitir que William estava certo.
+
+E ele não estava disposto a fazer isso.
+
+Quando voltou para o grupo, todos olharam para ele com curiosidade.
+
+— O que ele queria? — Christian perguntou, a voz carregando preocupação.
+
+— Nada importante — Edwin respondeu, mentindo com uma facilidade que o incomodou. — Apenas uma mensagem do meu irmão. Nada que devemos nos preocupar.
+
+Ziralyth estudou o rosto dele por um momento, os olhos azuis quase transparentes parecendo ver através de qualquer máscara que ele tentasse usar.
+
+— Você está mentindo — disse, finalmente. — Mas tudo bem. Você vai nos contar quando estiver pronto.
+
+Edwin não respondeu, apenas montou no cavalo e sinalizou para continuarem. Mas no fundo, sabia que Ziralyth estava certa. Ele estava mentindo. E guardava aquele segredo não porque queria, mas porque sabia que, se contasse, o grupo começaria a questionar. Começaria a duvidar.
+
+E ele não podia permitir que isso acontecesse. Não agora. Não quando estavam tão perto.
+
+A viagem continuou, mas algo havia mudado. Edwin sabia que, a partir daquele momento, as coisas iam ficar mais difíceis. E que William não ia mais tentar ser gentil.
+
+Mas também sabia que não estava disposto a desistir. Não agora. Não depois de ter chegado tão longe.
+
+E guardou aquele segredo, como guardava tantos outros, sabendo que um dia ele teria que enfrentar as consequências. Mas por enquanto, era o suficiente continuar. Era o suficiente seguir em frente.
+
+Mesmo que isso significasse carregar mais um peso nos ombros.
 
 ### Capítulo 17
 *A party descobre o paradeiro de um artefato menor ou mapa que revela a localização do artefato principal.*
