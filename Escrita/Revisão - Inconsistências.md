@@ -70,9 +70,9 @@ No **Capítulo 26**, o texto foi corrigido para NÃO mencionar que eles já têm
 
 ## 5. Inconsistências Narrativas Menores
 
-### ⚠️ Capítulo 26 vs Capítulo 28
-- **Problema**: O Capítulo 26 menciona que eles já têm o cálice, mas o Capítulo 28 mostra eles ainda procurando.
-- **Solução**: Reorganizar o Capítulo 26 para ocorrer ANTES de encontrarem o cálice, ou ajustar o Capítulo 28 para que o cálice já esteja com eles.
+### ✅ CORRIGIDO - Capítulo 26 vs Capítulo 28
+- **Problema**: O Capítulo 26 mencionava que eles já tinham o cálice, mas o Capítulo 28 mostrava eles ainda procurando.
+- **Solução aplicada**: O Capítulo 26 foi ajustado para ocorrer logo após entrarem na porta (final do Capítulo 25), mas ANTES de enfrentarem as provações do Capítulo 28. A conversa entre Christian e Edwin agora foca nas intenções de Edwin sobre o que fará quando encontrarem o cálice, não sobre algo que já aconteceu. O Capítulo 28 foi ajustado para começar já com eles descendo pelo corredor e enfrentando as provações, sem duplicar a entrada no corredor.
 
 ---
 

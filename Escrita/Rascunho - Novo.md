@@ -2729,7 +2729,11 @@ Edwin sentiu algo estranho no peito — uma mistura de raiva e culpa. Christian 
 
 — Mas você está considerando — Christian disse, não como pergunta, mas como afirmação. — Você está considerando beber dele, não está?
 
-— Pensar sobre o quê? — Christian perguntou, a voz mais dura. — Sobre se vale a pena beber de um artefato que corrompe? Sobre se vale a pena se tornar como os sete lordes? Sobre se vale a pena perder sua alma?
+Edwin não respondeu imediatamente. Olhou para o corredor que descia, para a escuridão que os aguardava, e então voltou o olhar para Christian.
+
+— E se eu estiver? — perguntou, a voz mais dura do que pretendia. — E se beber do cálice for a única forma de conseguir o que eu quero? E se for a única forma de não ser mais o segundo filho esquecido?
+
+— A que custo? — Christian perguntou, a voz mais dura. — A que custo, Edwin? Você vai perder sua alma. Você vai se tornar como os sete lordes. Você vai se tornar algo que não é humano. E então, o que vai sobrar? O que vai sobrar de você quando você tiver o trono, mas não tiver mais quem você é?
 
 Edwin sentiu algo estranho no peito — uma mistura de raiva e culpa. Christian estava certo. Ele estava certo sobre tudo. Mas também não entendia. Não entendia o que era viver uma vida inteira na sombra, sabendo que nunca teria o que queria.
 
@@ -2738,8 +2742,6 @@ Edwin sentiu algo estranho no peito — uma mistura de raiva e culpa. Christian 
 — Eu entendo — Christian respondeu, a voz mais suave. — Mas isso não justifica isso, Edwin. Isso não justifica se tornar algo que você não é. Isso não justifica perder quem você é.
 
 — E quem eu sou? — Edwin perguntou, a voz mais alta do que pretendia. — Quem eu sou, Christian? Sou o segundo filho que ninguém leva a sério. Sou o príncipe que vai ser empurrado para uma catedral. Sou o que não importa. — Fez uma pausa, a respiração acelerada. — E se beber do cálice me der a chance de ser alguém? De ser importante? De ter o que eu sempre quis?
-
-— A que custo? — Christian perguntou, os olhos verdes brilhando. — A que custo, Edwin? Você vai perder sua alma. Você vai se tornar como os sete lordes. Você vai se tornar algo que não é humano. E então, o que vai sobrar? O que vai sobrar de você quando você tiver o trono, mas não tiver mais quem você é?
 
 Edwin não respondeu, porque não tinha resposta. Sabia que Christian estava certo. Sabia que beber do cálice significaria perder algo. Mas também sabia que não beber significaria perder tudo.
 
@@ -2827,9 +2829,9 @@ Como sempre permaneceu.
 ### Capítulo 28
 *A party encontra o local do artefato — protegido por enigmas ou armadilhas ancestrais.*
 
-O corredor que se abriu diante deles era estreito e escuro, descendo em uma espiral que parecia não ter fim. As paredes eram de pedra negra, lisa como vidro, e nas laterais, havia runas antigas que brilhavam com uma luz fraca, pulsando como se estivessem vivas.
+O silêncio que se seguiu à conversa entre Christian e Edwin foi pesado, mas não durou muito. O grupo precisava continuar. Precisava descer pelo corredor que se abria diante deles, enfrentar o que quer que estivesse esperando lá embaixo.
 
-Edwin foi o primeiro a entrar, seguido pelos outros. A porta se fechou atrás deles com um som de pedra raspando contra pedra, e todos sabiam que não havia mais volta. Não por aquele caminho, pelo menos.
+Edwin foi o primeiro a se mover, seguido pelos outros. O corredor era estreito e escuro, descendo em uma espiral que parecia não ter fim. As paredes eram de pedra negra, lisa como vidro, e nas laterais, havia runas antigas que brilhavam com uma luz fraca, pulsando como se estivessem vivas.
 
 — Cuidado — Nymeris sussurrou, os olhos prateados brilhando na escuridão. — Posso sentir. Há magia aqui. Magia antiga. Muito antiga.
 

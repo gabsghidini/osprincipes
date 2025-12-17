@@ -48,6 +48,15 @@ Humano, Ladino, Neutral Good (aparente)
 O segundo filho da monarquia, Edwin é tudo o que se espera de um aventureiro despretensioso: sagaz, carismático e dono de um humor irreverente que alivia até as situações mais sombrias. Mestre em palavras doces e truques de bolso, parece mais interessado em jogos de azar e amores passageiros do que em heranças ou responsabilidades. Com um sorriso fácil e um talento nato para escapar de problemas, Edwin rapidamente se torna a alma da party — o amigo em quem todos confiam, o aliado sempre pronto para o brinde ou a piada certa.
 Mas há segredos escondidos nas sombras desse príncipe. Um desejo antigo, enraizado não apenas no coração, mas na própria essência de quem sempre viveu à sombra do trono. Quando o véu do afeto e da camaradagem cair, descobrirão que, entre todos, Edwin sempre foi o mais perigoso.
 
+Descrição Física:
+- Cabelos dourados que reluzem mesmo sob pouca luz
+- Olhos azuis que parecem sempre estar calculando algo, tentando parecer mais inocentes do que realmente são
+- Rosto bem definido, jovem, com traços nobres herdados da mãe
+- Postura elegante mesmo quando tenta se passar por um aventureiro comum
+- Sorriso fácil e charmoso que esconde mais do que revela
+- Estatura média, mas com uma presença que compensa qualquer diferença de altura
+- Tudo nele grita nobreza, mesmo quando tenta esconder
+
 
 Christian
 Meio-elfo, Paladino da Luz, Lawful Good
