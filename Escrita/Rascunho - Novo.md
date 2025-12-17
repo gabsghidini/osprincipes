@@ -1677,7 +1677,104 @@ Mas algo havia mudado. Agora tinham um curandeiro. Agora tinham alguém que pode
 E Edwin sabia que, para o que estava por vir, isso seria fundamental.
 
 ### Capítulo 15
-*Nymeris e Christian reconhecem algo um no outro — trauma religioso, passado parecido — criando uma conexão que vai ser explorada depois.*
+
+O sol já estava baixo no horizonte quando Ziralyth sinalizou para pararem. Eles haviam viajado o dia inteiro, e até mesmo os cavalos estavam começando a mostrar sinais de cansaço. A estrada os havia levado através de uma floresta densa, e quando encontraram uma clareira natural, cercada por árvores antigas e com um pequeno riacho correndo ao lado, foi uma decisão unânime parar ali para descansar.
+
+Desmontaram, amarraram os cavalos em uma árvore próxima, e começaram a montar um acampamento básico. Brenna foi buscar lenha para uma fogueira, voltando com os braços cheios de galhos secos. Christian ajudou a acender o fogo, usando técnicas que havia aprendido durante seus anos de treino. Ziralyth organizou os suprimentos, e Edwin ficou observando, calculando mentalmente quanto tempo ainda tinham até chegarem ao próximo ponto de referência no mapa.
+
+Nymeris, por sua vez, sentou-se perto do riacho, lavando as mãos e o rosto na água fria. Os olhos prateados pareciam distantes, como se estivesse pensando em algo que não queria compartilhar.
+
+Quando a fogueira finalmente pegou, lançando sombras dançantes sobre o grupo, todos se sentaram ao redor dela. O silêncio que se seguiu não era desconfortável, mas havia algo pesado ali — como se todos estivessem carregando coisas que não queriam falar em voz alta.
+
+Foi Brenna quem quebrou o silêncio, como sempre fazia.
+
+— Então — disse, espetando um pedaço de carne seca com uma faca. — Quem vai contar a primeira história? Porque eu tenho uma sobre um dragão que eu quase matei, mas na verdade era só um lagarto gigante com problemas de ego.
+
+Ziralyth riu, um som seco.
+
+— Clássico. Todo mundo tem uma história de dragão que não era dragão.
+
+— Não é mentira! — Brenna protestou, mas estava rindo também. — Ele era enorme! E cuspia fogo! Bem, cuspia algo que cheirava muito mal, mas ainda conta.
+
+Edwin sorriu, sentindo-se estranhamente à vontade naquela companhia. Havia algo reconfortante em estar ali, longe do castelo, longe das expectativas, apenas com pessoas que, por enquanto, não o julgavam.
+
+— Eu tenho uma história — disse, finalmente. — Sobre como perdi meu primeiro cavalo de guerra em uma aposta.
+
+— Apostou seu cavalo? — Christian perguntou, a voz carregando uma mistura de incredulidade e resignação.
+
+— Apostei e perdi — Edwin confirmou. — Meu pai ficou furioso. Disse que aqueles cavalos eram mais leais que a maioria dos homens, e que eu não tinha direito de tratá-los como moeda de troca.
+
+— E você aprendeu a lição? — Nymeris perguntou, a voz suave, os olhos prateados fixos nele.
+
+— Aprendi que não deveria apostar cavalos — Edwin respondeu, com um sorriso torto. — Mas não aprendi a não apostar.
+
+Todos riram, e por um momento, o ambiente ficou mais leve. Mas então Christian falou, a voz mais baixa do que o normal.
+
+— Eu tenho uma história — disse, olhando para as chamas da fogueira. — Sobre como quase desisti da fé.
+
+O silêncio que se seguiu foi diferente. Mais pesado. Mais significativo.
+
+— Quase? — Ziralyth perguntou, a voz neutra, mas havia curiosidade ali.
+
+— Sim — Christian respondeu, sem olhar para ninguém. — Foi quando eu tinha quinze anos. Havia uma vila pequena, perto da fronteira. Os moradores estavam sendo atacados por bandidos, e eu fui enviado para ajudar. — Fez uma pausa, os dedos tamborilando na perna. — Cheguei tarde. A vila estava em chamas, e a maioria das pessoas estava morta. Mas havia uma criança. Uma menina pequena, não devia ter mais de cinco anos. Ela estava ferida, sangrando, e eu tentei curá-la. Usei todas as orações que conhecia, todas as bênçãos que havia aprendido. Mas nada funcionou. Ela morreu nos meus braços, e eu não consegui fazer nada.
+
+A voz dele quebrou um pouco, e Edwin sentiu algo estranho no peito — algo que não era culpa, mas que se aproximava disso.
+
+— E então? — Nymeris perguntou, a voz ainda mais suave, como se estivesse falando com alguém ferido.
+
+— E então eu questionei tudo — Christian respondeu. — Questionei por que os deuses permitiam que coisas assim acontecessem. Questionei se minha fé realmente significava algo, se eu realmente estava fazendo o bem, ou se estava apenas fingindo. — Olhou para as mãos. — Passei semanas sem rezar. Sem acreditar. Até que um dia, encontrei a mãe daquela menina. Ela havia sobrevivido, e quando me viu, ela me agradeceu. Disse que eu havia tentado. Disse que, mesmo que não tivesse conseguido salvar a filha dela, eu havia dado a ela alguns momentos a mais. E que isso importava.
+
+Fez uma pausa, respirando fundo.
+
+— Foi então que entendi que a fé não é sobre salvar todos. É sobre tentar. É sobre estar presente, mesmo quando não há nada que você possa fazer. E que, às vezes, isso é o suficiente.
+
+O silêncio se estendeu, e então Nymeris falou, a voz quase um sussurro.
+
+— Eu entendo — disse. — Eu entendo perfeitamente.
+
+Todos olharam para ela, e pela primeira vez desde que a conheceram, viram algo diferente no rosto dela — algo vulnerável, algo que ela normalmente escondia.
+
+— Quando eu era mais nova — ela continuou, os olhos fixos nas chamas — eu servia em um templo. Não era um templo dos deuses primordiais. Era um templo menor, dedicado a uma deusa do crepúsculo. E eu acreditava. Acreditava que estava fazendo o bem, que estava ajudando as pessoas. — Fez uma pausa, os dedos traçando padrões invisíveis no ar. — Mas então veio uma peste. Uma doença que matou metade da cidade. E eu rezei. Rezei todos os dias, todas as noites. Usei toda a magia que conhecia, todas as bênçãos que havia aprendido. Mas as pessoas continuavam morrendo. E eu não conseguia fazer nada.
+
+Christian olhou para ela, e pela primeira vez, Edwin viu algo nos olhos dele que não era apenas simpatia — era reconhecimento.
+
+— E então? — Christian perguntou, a voz igualmente suave.
+
+— E então eu questionei — Nymeris respondeu. — Questionei se os deuses realmente se importavam. Se minha fé realmente significava algo. E, por um tempo, eu desisti. Deixei o templo. Viajei sozinha, tentando encontrar respostas. — Olhou para Christian. — Até que entendi que a fé não é sobre ter todas as respostas. É sobre continuar tentando, mesmo quando não há garantias. É sobre estar presente, mesmo quando tudo parece perdido.
+
+Christian assentiu, e por um momento, os dois apenas se olharam — um reconhecimento silencioso de algo compartilhado, algo que ninguém mais no grupo poderia entender completamente.
+
+— Parece que vocês dois têm muito em comum — Ziralyth comentou, a voz carregando um tom sarcástico, mas sem malícia. — Dois crentes desiludidos tentando encontrar significado no caos. É quase poético.
+
+— Não é desilusão — Nymeris respondeu, sem olhar para Ziralyth. — É… realismo. É entender que a fé não é uma garantia. É uma escolha. E escolher continuar acreditando, mesmo quando tudo parece indicar que não deveria, é o que torna a fé verdadeira.
+
+— E você? — Christian perguntou, olhando para ela. — Você ainda acredita?
+
+Nymeris ficou em silêncio por um momento, os olhos prateados refletindo as chamas da fogueira.
+
+— Acredito — respondeu, finalmente. — Mas não da mesma forma que antes. Agora eu acredito porque escolho acreditar. Não porque espero que os deuses me ouçam, mas porque acreditar me dá força para continuar. Para ajudar quem posso, mesmo quando não posso ajudar todos.
+
+Christian sorriu, um sorriso triste mas genuíno.
+
+— Eu entendo — disse. — Completamente.
+
+Brenna, que havia ficado em silêncio durante toda a conversa, finalmente falou, a voz mais baixa do que o normal.
+
+— Isso é bonito — disse, simplesmente. — Duas pessoas que passaram por coisas ruins, mas ainda escolhem tentar fazer o bem. Isso é… isso é bonito.
+
+Ziralyth riu, mas desta vez o som tinha mais calor.
+
+— Você é muito sentimental, bárbara.
+
+— E você é muito cínica, ladra — Brenna respondeu, mas estava sorrindo.
+
+Edwin observou a interação, sentindo algo estranho no peito. Havia algo ali — uma conexão que ele não conseguia nomear completamente. Mas sabia que, para Christian e Nymeris, aquela conversa havia criado um laço que não existia antes. Um laço baseado em compreensão mútua, em experiências compartilhadas.
+
+E, no fundo, sabia que isso era importante. Que ter alguém que entendesse, que tivesse passado por coisas similares, era algo que ambos precisavam.
+
+A noite continuou, com mais histórias sendo compartilhadas — algumas tristes, algumas engraçadas, algumas que não eram nem uma coisa nem outra. Mas quando finalmente se recolheram para dormir, havia algo diferente no ar. Algo que não estava lá antes.
+
+E Edwin sabia que, para o que estava por vir, essas conexões seriam fundamentais.
 
 ### Capítulo 16
 *Um emissário do primeiro filho tenta subornar ou sabotar Edwin. Ele recusa, mas guarda isso em segredo.*
