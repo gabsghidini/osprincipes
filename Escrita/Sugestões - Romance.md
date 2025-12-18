@@ -107,3 +107,4 @@
 4. **Contraste:** Beleza do momento vs. perigo da jornada
 5. **Desenvolvimento:** Mostrar como o relacionamento evolui
 
+
